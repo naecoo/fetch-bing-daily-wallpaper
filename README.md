@@ -1,4 +1,3 @@
-
 ## Bing Wallpaper
 
 
