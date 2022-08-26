@@ -1,0 +1,24 @@
+{
+  "name": "bing-wallerpaper",
+  "version": "1.0.0",
+  "description": "Fetch Bing.com wallerpaper daily",
+  "private": true,
+  "main": "fetch.js",
+  "scripts": {
+    "update": "node ./index.js"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/naecoo/bing-wallerpaper.git"
+  },
+  "keywords": [
+    "Bing",
+    "wallerpaper"
+  ],
+  "author": "naecoo",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/naecoo/bing-wallerpaper/issues"
+  },
+  "homepage": "https://github.com/naecoo/bing-wallerpaper"
+}

@@ -14,14 +14,14 @@ jobs:
         with:
           node-version: "12.22.12"
       - name: Fetch Bing wallerpaper
-        run: node index.js
+        run: npm run update
       - name: Commit files
         run: |
           git config --local user.email "ocean7hy@gmail.com"
           git config --local user.name "naecoo"
           git pull
           git add README.md
-          git commit -m "update README"
+          git commit -m "update wallerpaper"
       - name: Push changes
         uses: ad-m/github-push-action@master
         with:
