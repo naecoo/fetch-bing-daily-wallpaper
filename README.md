@@ -2,10 +2,8 @@
 ## Bing Wallpaper
 
 
-**40年的休养生息**
+**这鸟长着小胡子**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MSHV_ZH-CN9630204701_1920x1080.jpg)
-[圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)](https://www.bing.com/search?q=%E5%9C%A3%E6%B5%B7%E4%BC%A6%E6%96%AF%E5%B1%B1%E5%9B%BD%E5%AE%B6%E7%81%AB%E5%B1%B1%E7%BA%AA%E5%BF%B5%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
-  
-  
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BeardedTit_ZH-CN0065279700_1920x1080.jpg)
+[荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)](https://www.bing.com/search?q=%E5%BC%97%E8%8E%B1%E7%A6%8F%E5%85%B0%E7%9C%81&amp;form=hpcapt&amp;mkt=zh-cn)
   
