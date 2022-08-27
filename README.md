@@ -1,8 +1,9 @@
+
 ## Bing Wallpaper
 
 
-**既有风，又有水**
+**40年的休养生息**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PeljesacWind_ZH-CN9299214248_1920x1080.jpg)
-[克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)](https://www.bing.com/search?q=%E4%BD%A9%E5%88%97%E6%B2%99%E8%8C%A8%E5%8D%8A%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MSHV_ZH-CN9630204701_1920x1080.jpg)
+[圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)](https://www.bing.com/search?q=%E5%9C%A3%E6%B5%B7%E4%BC%A6%E6%96%AF%E5%B1%B1%E5%9B%BD%E5%AE%B6%E7%81%AB%E5%B1%B1%E7%BA%AA%E5%BF%B5%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
