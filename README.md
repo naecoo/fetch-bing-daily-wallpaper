@@ -1,7 +1,3 @@
-
-## Bing Wallpaper
-
-
 **像湖一样的大海**
 
 ![bing-wallpaper](https://www.bing.com/th?id=OHR.EstoniaBaltic_ZH-CN0314555299_1920x1080.jpg)

@@ -61,9 +61,6 @@ const main = (content) => {
   }
 
   fs.writeFileSync(path.resolve(__dirname, "README.md"), `
-## Bing Wallpaper
-
-
 **${results[0]}**
 
 ![bing-wallpaper](${
