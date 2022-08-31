@@ -1,6 +1,6 @@
 
-**漂在海里的蓝色星星**
+**谁在使用这座绿草如茵的桥？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueLinckia_ZH-CN1103817183_1920x1080.jpg)
-[新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)](https://www.bing.com/search?q=%E8%93%9D%E6%8C%87%E6%B5%B7%E6%98%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg)
+[维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)](https://www.bing.com/search?q=%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E9%80%9A%E9%81%93&amp;form=hpcapt&amp;mkt=zh-cn)
   
