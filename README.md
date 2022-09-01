@@ -1,6 +1,6 @@
 
-**谁在使用这座绿草如茵的桥？**
+**这个神奇的海滩值得一游**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WildlifeCrossing_ZH-CN1493053695_1920x1080.jpg)
-[维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)](https://www.bing.com/search?q=%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E9%80%9A%E9%81%93&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SeitanLimania_ZH-CN3831790369_1920x1080.jpg)
+[克里特岛上的海滩，希腊 (© Georgios Tsichlis/Alamy)](https://www.bing.com/search?q=%E5%85%8B%E9%87%8C%E7%89%B9%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
