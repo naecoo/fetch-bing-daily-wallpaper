@@ -1,6 +1,6 @@
 
-**一双高耸入云的摩天大楼**
+**印度的里维埃拉**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MalaysiaTwinTowers_ZH-CN1989513449_1920x1080.jpg)
-[吉隆坡石油双塔，马来西亚 (© tampatra/Getty Images)](https://www.bing.com/search?q=%E5%90%89%E9%9A%86%E5%9D%A1+%E5%8F%8C%E5%AD%90%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ArambolBeach_ZH-CN2149857876_1920x1080.jpg)
+[果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)](https://www.bing.com/search?q=%E6%9E%9C%E9%98%BF%E9%82%A6&amp;form=hpcapt&amp;mkt=zh-cn)
   
