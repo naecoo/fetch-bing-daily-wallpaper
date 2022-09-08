@@ -1,6 +1,6 @@
 
-**500年前，是谁回到了这座城市？**
+**另一个大堡礁**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CircumnavigationAnni_ZH-CN6835512993_1920x1080.jpg)
-[从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)](https://www.bing.com/search?q=%E5%A1%9E%E7%BB%B4%E5%88%A9%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BHNMBelize_ZH-CN9422261941_1920x1080.jpg)
+[伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)](https://www.bing.com/search?q=%E4%BC%AF%E5%88%A9%E5%85%B9%E5%A0%A1%E7%A4%81%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;FORM=hpcapt&amp;mkt=zh-cn)
   
