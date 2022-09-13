@@ -1,6 +1,6 @@
 
-**如沙漏中的沙子一般**
+**横跨峡谷裂缝的两座桥**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GSDNPest_ZH-CN0818304791_1920x1080.jpg)
-[大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E6%B2%99%E4%B8%98%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MarbleCanyon_ZH-CN1066862981_1920x1080.jpg)
+[大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)](https://www.bing.com/search?q=%E5%A4%A7%E7%90%86%E7%9F%B3%E5%B3%A1%E8%B0%B7&amp;form=hpcapt&amp;mkt=zh-cn)
   
