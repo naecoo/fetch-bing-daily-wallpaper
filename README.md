@@ -1,6 +1,6 @@
 
-**沉浸在大自然中**
+**山峦间的光辉之城**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.EmeraldYoho_ZH-CN4524610330_1920x1080.jpg)
-[幽鹤国家公园的翡翠湖, 加拿大不列颠哥伦比亚省 (© Cavan Images/Offset)](https://www.bing.com/search?q=%E5%B9%BD%E9%B9%A4%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1920x1080.jpg)
+[巴斯利卡塔的卡斯泰尔梅扎诺村，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/search?q=%E5%B7%B4%E6%96%AF%E5%88%A9%E5%8D%A1%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
   
