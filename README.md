@@ -1,6 +1,6 @@
 
-**山峦间的光辉之城**
+**海上泰迪熊**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SanMartinoVillage_ZH-CN4623104087_1920x1080.jpg)
-[巴斯利卡塔的卡斯泰尔梅扎诺村，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/search?q=%E5%B7%B4%E6%96%AF%E5%88%A9%E5%8D%A1%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_1920x1080.jpg)
+[阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
