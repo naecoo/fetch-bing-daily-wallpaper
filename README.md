@@ -1,6 +1,6 @@
 
-**海上泰迪熊**
+**在西尔特的最南端**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SitkaOtters_ZH-CN4715326633_1920x1080.jpg)
-[阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SyltNordseeHoernum_ZH-CN6316415332_1920x1080.jpg)
+[赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)](https://www.bing.com/search?q=H%C3%B6rnum+(Sylt)&amp;form=hpcapt&amp;mkt=zh-cn)
   
