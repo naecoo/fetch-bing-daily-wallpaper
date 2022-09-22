@@ -1,6 +1,6 @@
 
-**一个小而强大的守护者**
+**属于秋天的色彩**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SpringPoint_ZH-CN6445792697_1920x1080.jpg)
-[春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)](https://www.bing.com/search?q=%E7%BC%85%E5%9B%A0%E5%B7%9E%E7%81%AF%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LastDollarRoad_ZH-CN1462265798_1920x1080.jpg)
+[最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/search?q=%E7%A7%8B%E5%88%86&amp;form=hpcapt&amp;mkt=zh-cn)
   
