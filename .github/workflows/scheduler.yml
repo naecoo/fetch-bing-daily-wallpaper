@@ -17,8 +17,8 @@ jobs:
         run: npm run update
       - name: Commit files
         run: |
-          git config --local user.email "ocean7hy@gmail.com"
-          git config --local user.name "naecoo"
+          git config --local user.email "github_action_bot@github.com"
+          git config --local user.name "github action bot"
           git pull
           git add README.md
           git commit -m "update wallerpaper"
