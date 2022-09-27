@@ -1,6 +1,6 @@
 
-**水与火相遇的地方**
+**一场现代化的重建**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneUGB_ZH-CN2518690319_1920x1080.jpg)
-[黄石国家公园里的上间歇泉盆地，美国怀俄明州 (© Ray Urner/Tandem Stills + Motion)](https://www.bing.com/search?q=%E4%B8%8A%E9%97%B4%E6%AD%87%E6%B3%89%E7%9B%86%E5%9C%B0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FosterCoveredBridge_ZH-CN2672988563_1920x1080.jpg)
+[卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/search?q=%E7%A6%8F%E6%96%AF%E7%89%B9%E5%BB%8A%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
