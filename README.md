@@ -1,6 +1,6 @@
 
-**一场现代化的重建**
+**落基山脉的宝石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FosterCoveredBridge_ZH-CN2672988563_1920x1080.jpg)
-[卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/search?q=%E7%A6%8F%E6%96%AF%E7%89%B9%E5%BB%8A%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.JohnstonWater_ZH-CN3121890365_1920x1080.jpg)
+[约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%8F%AD%E5%A4%AB%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
