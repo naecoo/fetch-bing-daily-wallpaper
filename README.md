@@ -1,6 +1,6 @@
 
-**切斯瑞湖**
+**仙境之旅**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LacChesserys_ZH-CN4136691056_1920x1080.jpg)
-[倒映在湖中的勃朗峰山脉，法国霞慕尼市 (© Stefan Huwiler/Alamy)](https://www.bing.com/search?q=%E5%8B%83%E6%9C%97%E5%B3%B0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FairyGlen_ZH-CN4521633106_1920x1080.jpg)
+[仙女谷，苏格兰斯凯岛 (© e55evu/Getty Images)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E6%96%AF%E5%87%AF%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
