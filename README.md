@@ -1,6 +1,6 @@
 
-**隐入大海的龙尾**
+**英国中部最美丽的风景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BayofBiscay_ZH-CN6002214693_1920x1080.jpg)
-[巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)](https://www.bing.com/search?q=%E5%B7%B4%E6%96%AF%E5%85%8B%E6%B5%B7%E5%B2%B8%E4%B8%96%E7%95%8C%E5%9C%B0%E8%B4%A8%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WindermereHills_ZH-CN6614218161_1920x1080.jpg)
+[温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)](https://www.bing.com/search?q=%E6%B8%A9%E5%BE%B7%E7%B1%B3%E5%B0%94%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
   
