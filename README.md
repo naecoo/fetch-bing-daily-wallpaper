@@ -1,6 +1,6 @@
 
-**回到过去**
+**驼鹿发情的季节**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AmmoniteGraveyard_ZH-CN8904427525_1920x1080.jpg)
-[蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)](https://www.bing.com/search?q=%E4%BE%8F%E7%BD%97%E7%BA%AA%E6%B5%B7%E5%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AlaskaMoose_ZH-CN9148253690_1920x1080.jpg)
+[迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/search?q=%E9%A9%BC%E9%B9%BF&amp;form=hpcapt&amp;mkt=zh-cn)
   
