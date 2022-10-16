@@ -1,6 +1,6 @@
 
-**一座北部岛屿的南端**
+**“长耳”猫头鹰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PrinceChristianSound_ZH-CN0274463143_1920x1080.jpg)
-[克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)](https://www.bing.com/search?q=%E6%A0%BC%E9%99%B5%E5%85%B0%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SwedenOwl_ZH-CN6960032096_1920x1080.jpg)
+[捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/search?q=%E9%95%BF%E8%80%B3%E9%B8%AE&amp;form=hpcapt&amp;mkt=zh-cn)
   
