@@ -1,6 +1,6 @@
 
-**“长耳”猫头鹰**
+**风之精灵**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SwedenOwl_ZH-CN6960032096_1920x1080.jpg)
-[捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/search?q=%E9%95%BF%E8%80%B3%E9%B8%AE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BridalVeilFalls_ZH-CN3954641670_1920x1080.jpg)
+[Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)](https://www.bing.com/search?q=%E7%BA%A6%E5%A1%9E%E7%B1%B3%E8%92%82+%E6%96%B0%E5%A8%98%E9%9D%A2%E7%BA%B1%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
