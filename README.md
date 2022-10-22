@@ -1,6 +1,6 @@
 
-**云山雾绕**
+**疣鼻天鹅**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KarstMountains_ZH-CN4719178982_1920x1080.jpg)
-[中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)](https://www.bing.com/search?q=%E6%A1%82%E6%9E%97%E6%BC%93%E6%B1%9F%E9%A3%8E%E6%99%AF%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Knobbelzwaan_ZH-CN4850245302_1920x1080.jpg)
+[疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)](https://www.bing.com/search?q=%E7%96%A3%E9%BC%BB%E5%A4%A9%E9%B9%85&amp;form=hpcapt&amp;mkt=zh-cn)
   
