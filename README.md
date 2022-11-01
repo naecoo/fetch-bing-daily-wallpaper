@@ -1,6 +1,6 @@
 
-**来一盏微笑的南瓜灯吗？**
+**您喝的茶可能来自这里**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_1920x1080.jpg)
-[神秘森林里木桌上的两个微笑的万圣节南瓜 (© sandsun/Getty Images)](https://www.bing.com/search?q=%E4%B8%87%E5%9C%A3%E8%8A%82%E5%8D%97%E7%93%9C%E7%81%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_1920x1080.jpg)
+[慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)](https://www.bing.com/search?q=%E5%8D%B0%E5%BA%A6%E6%85%95%E7%BA%B3%E5%B0%94&amp;form=hpcapt&amp;mkt=zh-cn)
   
