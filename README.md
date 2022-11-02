@@ -1,6 +1,6 @@
 
-**您喝的茶可能来自这里**
+**一个关于可持续发展的实验**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_1920x1080.jpg)
-[慕纳尔的茶园，印度喀拉拉邦 (© Mazur Travel/Shutterstock)](https://www.bing.com/search?q=%E5%8D%B0%E5%BA%A6%E6%85%95%E7%BA%B3%E5%B0%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AmboseliBioshere_ZH-CN7220940943_1920x1080.jpg)
+[乞力马扎罗山和非洲水牛，肯尼亚 (© RealityImages/Shutterstock)](https://www.bing.com/search?q=+%E5%AE%89%E6%B3%A2%E5%A1%9E%E5%88%A9%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
