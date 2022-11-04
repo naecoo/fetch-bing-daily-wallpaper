@@ -1,6 +1,6 @@
 
-**落基山上碧玉腰带**
+**重温往日辉煌**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_1920x1080.jpg)
-[班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)](https://www.bing.com/search?q=%E6%B2%9B%E6%89%98%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_1920x1080.jpg)
+[阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E6%96%AF%E7%89%B9%E7%81%B5%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
