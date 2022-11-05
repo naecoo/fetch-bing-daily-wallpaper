@@ -1,6 +1,6 @@
 
-**重温往日辉煌**
+**跑过纽约五个行政区**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_1920x1080.jpg)
-[阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E6%96%AF%E7%89%B9%E7%81%B5%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MarathonSunday_ZH-CN9833453732_1920x1080.jpg)
+[1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E6%8B%89%E6%9D%BE&amp;form=hpcapt&amp;mkt=zh-cn)
   
