@@ -1,6 +1,6 @@
 
-**徒步旅行**
+**通往皇宫的大门**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_1920x1080.jpg)
-[威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_1920x1080.jpg)
+[菲斯皇宫的大门，摩洛哥 (© Adam Smigielski/Getty Images)](https://www.bing.com/search?q=%E4%BC%8A%E6%96%AF%E5%85%B0%E5%BB%BA%E7%AD%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
