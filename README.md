@@ -1,6 +1,6 @@
 
-**自然、艺术和数学**
+**令人惊叹的山顶美景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HelianthusAnnuus_ZH-CN1675762555_1920x1080.jpg)
-[向日葵 (© Dileep Chandran/Alamy)](https://www.bing.com/search?q=%E6%96%90%E6%B3%A2%E9%82%A3%E5%A5%91%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AschauChiemgau_ZH-CN1929016406_1920x1080.jpg)
+[坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)](https://www.bing.com/search?q=%E5%9D%8E%E5%BD%AD%E4%B8%87%E5%BE%B7%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
