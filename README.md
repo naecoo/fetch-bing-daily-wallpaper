@@ -1,6 +1,6 @@
 
-**令人惊叹的山顶美景**
+**科雷兹的宝石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AschauChiemgau_ZH-CN1929016406_1920x1080.jpg)
-[坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)](https://www.bing.com/search?q=%E5%9D%8E%E5%BD%AD%E4%B8%87%E5%BE%B7%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TurenneSunrise_ZH-CN2357226217_1920x1080.jpg)
+[日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E7%A7%91%E9%9B%B7%E5%85%B9%E7%9C%81&amp;form=hpcapt&amp;mkt=zh-cn)
   
