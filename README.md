@@ -1,6 +1,6 @@
 
-**南极洲**
+**保护阿拉斯加的自然之美**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AntarcticaDay_ZH-CN5719164468_1920x1080.jpg)
-[天堂湾，南极洲 (© SinghaphanAllB/Getty Images)](https://www.bing.com/search?q=%E5%8D%97%E6%9E%81%E6%B4%B2&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BraidedRiverDelta_ZH-CN3352462511_1920x1080.jpg)
+[特里卡基拉河三角洲，阿拉斯加州克拉克湖国家公园，美国 (© Dawn Wilson Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E5%B7%9E%E5%85%8B%E6%8B%89%E5%85%8B%E6%B9%96%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
