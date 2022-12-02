@@ -1,6 +1,6 @@
 
-**保护阿拉斯加的自然之美**
+**在艺术天堂追逐夏天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BraidedRiverDelta_ZH-CN3352462511_1920x1080.jpg)
-[特里卡基拉河三角洲，阿拉斯加州克拉克湖国家公园，美国 (© Dawn Wilson Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E5%B7%9E%E5%85%8B%E6%8B%89%E5%85%8B%E6%B9%96%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MiamiDT_ZH-CN3528760113_1920x1080.jpg)
+[迈阿密海滩海洋大道，美国佛罗里达州 (© Matteo Colombo/Getty Images)](https://www.bing.com/search?q=%E8%BF%88%E9%98%BF%E5%AF%86%E6%B5%B7%E6%BB%A9%E6%B5%B7%E6%B4%8B%E5%A4%A7%E9%81%93&amp;form=hpcapt&amp;mkt=zh-cn)
   
