@@ -1,6 +1,6 @@
 
-**象群在路上**
+**绿意盎然**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KilimanjaroElephants_ZH-CN3779609103_1920x1080.jpg)
-[乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚 (© Diana Robinson Photography/Getty Images)](https://www.bing.com/search?q=%E4%B9%9E%E5%8A%9B%E9%A9%AC%E6%89%8E%E7%BD%97&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_1920x1080.jpg)
+[古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)](https://www.bing.com/search?q=%E5%8F%A4%E7%93%A6%E5%93%88%E6%8F%90&amp;form=hpcapt&amp;mkt=zh-cn)
   
