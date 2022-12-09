@@ -1,6 +1,6 @@
 
-**这些古老的动物是什么？**
+**一小撮盐可不够**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_1920x1080.jpg)
-[多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)](https://www.bing.com/search?q=%E9%BA%9D%E7%89%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1920x1080.jpg)
+[玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)](https://www.bing.com/search?q=%E4%B9%8C%E5%B0%A4%E5%B0%BC%E7%9B%90%E6%B2%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
