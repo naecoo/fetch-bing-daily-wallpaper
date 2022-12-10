@@ -1,6 +1,6 @@
 
-**一小撮盐可不够**
+**国际山岳日**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_1920x1080.jpg)
-[玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)](https://www.bing.com/search?q=%E4%B9%8C%E5%B0%A4%E5%B0%BC%E7%9B%90%E6%B2%BC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_1920x1080.jpg)
+[泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)](https://www.bing.com/search?q=%E5%BE%B7%E5%9B%BD%E5%B7%B4%E4%BC%90%E5%88%A9%E4%BA%9A%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
