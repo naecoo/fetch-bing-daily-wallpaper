@@ -1,6 +1,6 @@
 
-**通往拉丁美洲的门户**
+**一抹鲜艳的色彩**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_1920x1080.jpg)
-[迈阿密南海滩，美国佛罗里达州 (© Claudia Uripos/eStock Photo)](https://www.bing.com/search?q=%E8%BF%88%E9%98%BF%E5%AF%86%E5%8D%97%E6%B5%B7%E6%BB%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_1920x1080.jpg)
+[栖息在北美冬青上的北美红雀，美国伊利诺伊州 (© Richard and Susan Day/Danita Delimont)](https://www.bing.com/search?q=%E5%8C%97%E7%BE%8E%E7%BA%A2%E9%9B%80&amp;form=hpcapt&amp;mkt=zh-cn)
   
