@@ -1,6 +1,6 @@
 
-**圣诞节的倒影**
+**环绕太阳的彩虹**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_1920x1080.jpg)
-[维也纳美景宫的圣诞市场，奥地利 (© Diyana Dimitrova/Alamy)](https://www.bing.com/search?q=%E7%BE%8E%E6%99%AF%E5%AE%AB&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_1920x1080.jpg)
+[多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)](https://www.bing.com/search?q=%E6%97%A5%E6%99%95&amp;form=hpcapt&amp;mkt=zh-cn)
   
