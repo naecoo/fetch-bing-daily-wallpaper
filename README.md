@@ -1,6 +1,6 @@
 
-**阖家欢乐的一天**
+**治愈身心的“废水”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BeverleyWestwood_ZH-CN3729041588_1920x1080.jpg)
-[贝弗利·韦斯特伍德，东约克郡，英格兰 (© Les Gibbon/Alamy)](https://www.bing.com/search?q=%E8%8A%82%E7%A4%BC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg)
+[格林达维克的蓝湖，冰岛 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E6%A0%BC%E6%9E%97%E8%BE%BE%E7%BB%B4%E5%85%8B%E8%93%9D%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
   
