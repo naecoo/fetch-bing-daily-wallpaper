@@ -1,6 +1,6 @@
 
-**治愈身心的“废水”**
+**雪花玻璃球一般的美景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_1920x1080.jpg)
-[格林达维克的蓝湖，冰岛 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E6%A0%BC%E6%9E%97%E8%BE%BE%E7%BB%B4%E5%85%8B%E8%93%9D%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_1920x1080.jpg)
+[马洛亚，瑞士 (© Roberto Moiola/Getty)](https://www.bing.com/search?q=%E7%91%9E%E5%A3%AB%E9%A9%AC%E6%B4%9B%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
