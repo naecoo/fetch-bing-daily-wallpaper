@@ -1,6 +1,6 @@
 
-**在北极附近打盹**
+**正如童话一般**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_1920x1080.jpg)
-[北极熊斯瓦尔巴群岛，挪威 (© Dennis Stogsdill/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E7%93%A6%E5%B0%94%E5%B7%B4%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_1920x1080.jpg)
+[霍亨索伦城堡，德国 (© Sahara Prince/Shutterstock)](https://www.bing.com/search?q=%E9%9C%8D%E4%BA%A8%E7%B4%A2%E4%BC%A6%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
