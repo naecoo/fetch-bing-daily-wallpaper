@@ -1,6 +1,6 @@
 
-**“群山拥有抚慰和治愈的力量”**
+**纺纱杆到底是什么东西？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlackFell_ZH-CN9224189688_1920x1080.jpg)
-[英格兰湖区的Black Fell (© Daniel Kay/Shutterstock)](https://www.bing.com/search?q=%E8%8B%B1%E6%A0%BC%E5%85%B0%E6%B9%96%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_1920x1080.jpg)
+[羊毛和马海毛纱线 (© Jurate Buiviene/Alamy)](https://www.bing.com/search?q=%E7%BA%B1%E7%BA%BF%E7%9A%84%E5%8E%86%E5%8F%B2&amp;form=hpcapt&amp;mkt=zh-cn)
   
