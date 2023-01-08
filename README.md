@@ -1,6 +1,6 @@
 
-**我们去哪里玩？**
+**神奇水牛在哪里？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_1920x1080.jpg)
-[科罗拉多州布雷肯里奇 (© Sean Pavone/Shutterstock)](https://www.bing.com/search?q=%E7%A7%91%E7%BD%97%E6%8B%89%E5%A4%9A%E5%B7%9E%E5%B8%83%E9%9B%B7%E8%82%AF%E9%87%8C%E5%A5%87&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1920x1080.jpg)
+[南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)](https://www.bing.com/search?q=%E9%A3%8E%E6%B4%9E%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
