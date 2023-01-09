@@ -1,6 +1,6 @@
 
-**神奇水牛在哪里？**
+**当冰块变成了艺术**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_1920x1080.jpg)
-[南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)](https://www.bing.com/search?q=%E9%A3%8E%E6%B4%9E%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_1920x1080.jpg)
+[爱沙尼亚佩普斯湖上的小冰丘 (© Sven Zacek/Minden Pictures)](https://www.bing.com/search?q=%E5%A1%94%E5%B0%94%E5%9B%BE%E5%8E%BF&amp;form=hpcapt&amp;mkt=zh-cn)
   
