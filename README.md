@@ -1,6 +1,6 @@
 
-**“兄弟们，跟我走”**
+**爆竹声中一岁除**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FalklandKings_ZH-CN6891102487_1920x1080.jpg)
-[王企鹅，福克兰群岛 (© Elmar Weiss/Getty Images)](https://www.bing.com/search?q=%E7%A6%8F%E5%85%8B%E5%85%B0%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ChineseNewYearEve2023_ZH-CN7188893388_1920x1080.jpg)
+[除夕夜的中国新年灯笼 (© Toa55/Getty Images)](https://www.bing.com/search?q=%E9%99%A4%E5%A4%95&amp;form=hpcapt&amp;mkt=zh-cn)
   
