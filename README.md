@@ -1,6 +1,6 @@
 
-**爆竹声中一岁除**
+**春节快乐，兔年大吉！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChineseNewYearEve2023_ZH-CN7188893388_1920x1080.jpg)
-[除夕夜的中国新年灯笼 (© Toa55/Getty Images)](https://www.bing.com/search?q=%E9%99%A4%E5%A4%95&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ChineseSpringFestival2023_ZH-CN7281854882_1920x1080.jpg)
+[春节的桃花和红灯笼 (© David Ng+EyeEm/Getty Images)](https://www.bing.com/search?q=%E6%98%A5%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
