@@ -1,6 +1,6 @@
 
-**谁写下了友谊天长地久？**
+**通往天门的阶梯**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_1920x1080.jpg)
-[位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E9%98%BF%E4%BC%AF%E8%B4%B9%E5%B0%94%E8%BF%AA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HighArchChina_ZH-CN8170154553_1920x1080.jpg)
+[天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)](https://www.bing.com/search?q=%E6%B9%96%E5%8D%97%E5%A4%A9%E9%97%A8%E5%B1%B1%E5%9B%BD%E5%AE%B6%E6%A3%AE%E6%9E%97%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
