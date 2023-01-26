@@ -1,6 +1,6 @@
 
-**通往天门的阶梯**
+**向伟大的红树林致敬！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HighArchChina_ZH-CN8170154553_1920x1080.jpg)
-[天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)](https://www.bing.com/search?q=%E6%B9%96%E5%8D%97%E5%A4%A9%E9%97%A8%E5%B1%B1%E5%9B%BD%E5%AE%B6%E6%A3%AE%E6%9E%97%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RedMangrove_ZH-CN4083989028_1920x1080.jpg)
+[瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures)](https://www.bing.com/search?q=%E5%8F%A4%E5%B7%B4&amp;form=hpcapt&amp;mkt=zh-cn)
   
