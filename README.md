@@ -1,6 +1,6 @@
 
-**像极了艺术画作的真实照片**
+**为什么乌鸫与冬天联系紧密？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueBahamas_ZH-CN2083290847_1920x1080.jpg)
-[从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)](https://www.bing.com/search?q=%E5%B7%B4%E5%93%88%E9%A9%AC%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BlackbirdDay_ZH-CN2291101162_1920x1080.jpg)
+[埃塞克斯的乌鸫，英国 (© Bill Coster/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B9%8C%E9%B8%AB&amp;form=hpcapt&amp;mkt=zh-cn)
   
