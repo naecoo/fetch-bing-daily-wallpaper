@@ -1,6 +1,6 @@
 
-**一条安静的林间小路**
+**斑马快活的一天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NagarholeNationalPark_ZH-CN2550578922_1920x1080.jpg)
-[卡纳塔克邦的纳加尔霍雷国家公园，印度 (© Vivek BR/Shutterstock)](https://www.bing.com/search?q=%E7%BA%B3%E5%8A%A0%E5%B0%94%E9%9C%8D%E9%9B%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ZebraTrio_ZH-CN5902552401_1920x1080.jpg)
+[南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)](https://www.bing.com/search?q=%E5%B7%B4%E5%88%87%E5%B0%94%E7%83%AD%E5%B8%A6%E8%8D%89%E5%8E%9F%E6%96%91%E9%A9%AC&amp;form=hpcapt&amp;mkt=zh-cn)
   
