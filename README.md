@@ -1,6 +1,6 @@
 
-**斑马快活的一天**
+**日出时分的古老城堡**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ZebraTrio_ZH-CN5902552401_1920x1080.jpg)
-[南非自然保护区的斑马 (© Richard Du Toit/Minden Pictures)](https://www.bing.com/search?q=%E5%B7%B4%E5%88%87%E5%B0%94%E7%83%AD%E5%B8%A6%E8%8D%89%E5%8E%9F%E6%96%91%E9%A9%AC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SunriseCastle_ZH-CN6235928386_1920x1080.jpg)
+[皮埃尔丰城堡，皮卡第大区，法国 (© Hemis/Alamy)](https://www.bing.com/search?q=%E7%9A%AE%E5%9F%83%E5%B0%94%E4%B8%B0%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
