@@ -1,6 +1,6 @@
 
-**早春的气息**
+**兔年元宵节快乐！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_1920x1080.jpg)
-[永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)](https://www.bing.com/search?q=%E7%AB%8B%E6%98%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_1920x1080.jpg)
+[毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)](https://www.bing.com/search?q=%E5%85%83%E5%AE%B5%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
