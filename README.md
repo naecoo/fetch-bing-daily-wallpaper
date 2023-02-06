@@ -1,6 +1,6 @@
 
-**峡湾国家公园**
+**历史悠久的山顶村庄**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_1920x1080.jpg)
-[峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)](https://www.bing.com/search?q=%E5%B3%A1%E6%B9%BE%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_1920x1080.jpg)
+[拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E6%8B%89%E5%B8%83%E7%BD%97&amp;form=hpcapt&amp;mkt=zh-cn)
   
