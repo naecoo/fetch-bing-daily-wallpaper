@@ -1,6 +1,6 @@
 
-**雪中之恋**
+**世界河马日，隆重的庆典**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.OtaruIgloo_ZH-CN2078929256_1920x1080.jpg)
-[日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)](https://www.bing.com/search?q=%E5%B0%8F%E6%A8%BD%E9%9B%AA%E7%81%AF%E4%B9%8B%E8%B7%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HippoDayChobe_ZH-CN2883647954_1920x1080.jpg)
+[河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images)](https://www.bing.com/search?q=%E6%B2%B3%E9%A9%AC&amp;form=hpcapt&amp;mkt=zh-cn)
   
