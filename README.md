@@ -1,6 +1,6 @@
 
-**令人叹为观止的冰洞**
+**海洋之王**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.EbenIceCave_ZH-CN6035107581_1920x1080.jpg)
-[埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)](https://www.bing.com/search?q=%E5%86%B0%E6%B4%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MauiWhale_ZH-CN6664793962_1920x1080.jpg)
+[毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)](https://www.bing.com/search?q=%E5%BA%A7%E5%A4%B4%E9%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
   
