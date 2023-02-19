@@ -1,6 +1,6 @@
 
-**海洋之王**
+**在大自然中漫步**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MauiWhale_ZH-CN6664793962_1920x1080.jpg)
-[毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)](https://www.bing.com/search?q=%E5%BA%A7%E5%A4%B4%E9%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_1920x1080.jpg)
+[Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A5%A5%E6%A0%BC%E5%85%B0%E5%BE%B7%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
