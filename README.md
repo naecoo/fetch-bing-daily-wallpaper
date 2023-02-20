@@ -1,6 +1,6 @@
 
-**在大自然中漫步**
+**带上国王饼**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_1920x1080.jpg)
-[Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A5%A5%E6%A0%BC%E5%85%B0%E5%BE%B7%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1920x1080.jpg)
+[新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)](https://www.bing.com/search?q=%E6%96%B0%E5%A5%A5%E5%B0%94%E8%89%AF%E6%B3%95%E8%AF%AD%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
