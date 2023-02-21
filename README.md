@@ -1,6 +1,6 @@
 
-**带上国王饼**
+**和平之钟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_1920x1080.jpg)
-[新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)](https://www.bing.com/search?q=%E6%96%B0%E5%A5%A5%E5%B0%94%E8%89%AF%E6%B3%95%E8%AF%AD%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1920x1080.jpg)
+[菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)](https://www.bing.com/search?q=%E8%8F%B2%E5%B8%8C%E7%89%B9%E5%B0%94%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
