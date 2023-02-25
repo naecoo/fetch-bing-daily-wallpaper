@@ -1,6 +1,6 @@
 
-**冬天的布莱斯峡谷石林**
+**随着亚马孙的树冠摇摆**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg)
-[布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)](https://www.bing.com/search?q=%E5%B8%83%E8%8E%B1%E6%96%AF%E5%B3%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg)
+[亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)](https://www.bing.com/search?q=%E5%9D%A6%E5%8D%9A%E5%B8%95%E5%A1%94%E5%9B%BD%E5%AE%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
