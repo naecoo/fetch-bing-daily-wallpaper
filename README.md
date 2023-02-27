@@ -1,6 +1,6 @@
 
-**冰冷的北极，温暖的拥抱**
+**一张来自意大利的明信片**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1920x1080.jpg)
-[北极熊在加拿大沉睡 (© David Pike/Minden Pictures)](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1920x1080.jpg)
+[阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E9%98%BF%E7%89%B9%E6%8B%89%E5%B0%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
