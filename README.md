@@ -1,6 +1,6 @@
 
-**一张来自意大利的明信片**
+**纪念硬币上的著名建筑**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1920x1080.jpg)
-[阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E9%98%BF%E7%89%B9%E6%8B%89%E5%B0%BC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_1920x1080.jpg)
+[吕贝克的霍尔斯滕门，德国 (© Harald Nachtmann/Getty Images)](https://www.bing.com/search?q=%E9%9C%8D%E5%B0%94%E6%96%AF%E6%BB%95%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
   
