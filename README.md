@@ -1,6 +1,6 @@
 
-**纪念硬币上的著名建筑**
+**大自然的画作**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_1920x1080.jpg)
-[吕贝克的霍尔斯滕门，德国 (© Harald Nachtmann/Getty Images)](https://www.bing.com/search?q=%E9%9C%8D%E5%B0%94%E6%96%AF%E6%BB%95%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1920x1080.jpg)
+[内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)](https://www.bing.com/search?q=%E6%A0%BC%E6%8B%89%E7%BA%B3%E8%BE%BE&amp;form=hpcapt&amp;mkt=zh-cn)
   
