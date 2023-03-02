@@ -1,6 +1,6 @@
 
-**大自然的画作**
+**这些捕食者在做什么？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1920x1080.jpg)
-[内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)](https://www.bing.com/search?q=%E6%A0%BC%E6%8B%89%E7%BA%B3%E8%BE%BE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_1920x1080.jpg)
+[斯皮尔德拉的虎鲸，挪威 (© Alex Mustard/Minden Pictures)](https://www.bing.com/search?q=%E8%99%8E%E9%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
   
