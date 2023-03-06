@@ -1,6 +1,6 @@
 
-**这些独特的生物是什么?**
+**彩虹般的风景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IcelandHorses_ZH-CN7213041152_1920x1080.jpg)
-[站在自己领域的冰岛马，冰岛 (© Rodrigo Lourezini/Shutterstock)](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E9%A9%AC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1920x1080.jpg)
+[梯田鸟瞰图，元阳，中国 (© AlexGcs/Getty Images)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E5%85%83%E9%98%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
