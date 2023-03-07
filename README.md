@@ -1,6 +1,6 @@
 
-**彩虹般的风景**
+**守候浪漫的极光**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1920x1080.jpg)
-[梯田鸟瞰图，元阳，中国 (© AlexGcs/Getty Images)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E5%85%83%E9%98%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1920x1080.jpg)
+[极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics)](https://www.bing.com/search?q=%E6%80%80%E7%89%B9%E9%9C%8D%E6%96%AF%E5%8C%97%E6%9E%81%E5%85%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
