@@ -1,6 +1,6 @@
 
-**波浪板起伏的绿丘**
+**午睡消除烦恼**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1920x1080.jpg)
-[南唐斯国家公园的绵羊，东萨塞克斯郡，英国 (© Slawek Staszczuk/Alamy)](https://www.bing.com/search?q=%E5%8D%97%E5%94%90%E6%96%AF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg)
+[正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)](https://www.bing.com/search?q=%E5%A1%9E%E4%BC%A6%E7%9B%96%E8%92%82%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
