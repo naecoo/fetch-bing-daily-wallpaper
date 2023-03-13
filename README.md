@@ -1,6 +1,6 @@
 
-**午睡消除烦恼**
+**美丽的曲径迷宫**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg)
-[正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)](https://www.bing.com/search?q=%E5%A1%9E%E4%BC%A6%E7%9B%96%E8%92%82%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_1920x1080.jpg)
+[阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)](https://www.bing.com/search?q=%E5%A1%9E%E6%B5%A6%E8%B7%AF%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
