@@ -1,6 +1,6 @@
 
-**春天的色彩**
+**你最喜欢什么颜色？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_1920x1080.jpg)
-[紫番红花 (© Raimund Linke/Getty Images)](https://www.bing.com/search?q=%E7%B4%AB%E7%95%AA%E7%BA%A2%E8%8A%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1920x1080.jpg)
+[彩色粉笔 (© Stephen Shepherd/Plainpicture)](https://www.bing.com/search?q=%E5%BD%A9%E8%89%B2%E7%B2%89%E7%AC%94&amp;form=hpcapt&amp;mkt=zh-cn)
   
