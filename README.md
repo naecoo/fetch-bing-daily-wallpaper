@@ -1,6 +1,6 @@
 
-**通往天堂的楼梯？**
+**大自然最为色彩鲜艳的一面**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_1920x1080.jpg)
-[塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)](https://www.bing.com/search?q=%E5%85%A8%E7%90%83%E5%88%9B%E6%84%8F%E6%A5%BC%E6%A2%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_1920x1080.jpg)
+[安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/search?q=%E5%AE%89%E6%B2%99%E6%B3%A2%E5%88%A9%E5%93%A5%E6%B2%99%E6%BC%A0%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
