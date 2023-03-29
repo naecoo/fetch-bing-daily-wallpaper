@@ -1,6 +1,6 @@
 
-**世界海牛日**
+**华贵的色彩**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_1920x1080.jpg)
-[两只海牛，佛罗里达州的水晶河，美国 (© Gregory Sweeney/Getty Images)](https://www.bing.com/search?q=%E6%B5%B7%E7%89%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1920x1080.jpg)
+[孔雀羽毛 (© sarayut Thaneerat/Getty Images)](https://www.bing.com/search?q=%E5%AD%94%E9%9B%80%E7%BE%BD%E6%AF%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
