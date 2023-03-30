@@ -1,6 +1,6 @@
 
-**华贵的色彩**
+**大自然的蓝色奇观**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1920x1080.jpg)
-[孔雀羽毛 (© sarayut Thaneerat/Getty Images)](https://www.bing.com/search?q=%E5%AD%94%E9%9B%80%E7%BE%BD%E6%AF%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_1920x1080.jpg)
+[斯太尔河, 奥地利 (© guenterguni/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E5%A4%AA%E5%B0%94%E6%B2%B3+%E5%A5%A5%E5%9C%B0%E5%88%A9&amp;form=hpcapt&amp;mkt=zh-cn)
   
