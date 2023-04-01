@@ -1,6 +1,6 @@
 
-**一只青翠碧绿的蛙**
+**这座缥缈的山在哪里？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FrogMonth_ZH-CN3874143397_1920x1080.jpg)
-[爪哇树蛙 (© kuritafsheen/Getty Images)](https://www.bing.com/search?q=%E7%88%AA%E5%93%87%E6%A0%91%E8%9B%99&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg)
+[爪哇岛东部的婆罗摩火山，印度尼西亚 (© Bento Fotography/Getty Images)](https://www.bing.com/search?q=%E5%A9%86%E7%BD%97%E6%91%A9%E7%81%AB%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
