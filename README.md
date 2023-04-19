@@ -1,6 +1,6 @@
 
-**一对互相依偎的褐头凤鹛**
+**宁静的夜空**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1920x1080.jpg)
-[褐头凤鹛 (© Staffan Widstrand/Minden Pictures)](https://www.bing.com/search?q=%E8%A4%90%E5%A4%B4%E5%87%A4%E9%B9%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1920x1080.jpg)
+[克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)](https://www.bing.com/search?q=%E7%94%98%E5%B0%BC%E6%A3%AE%E5%9B%BD%E5%AE%B6%E6%A3%AE%E6%9E%97&amp;form=hpcapt&amp;mkt=zh-cn)
   
