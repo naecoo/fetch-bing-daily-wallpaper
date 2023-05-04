@@ -1,6 +1,6 @@
 
-**原力与你同在**
+**从胜利到欢庆**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_1920x1080.jpg)
-[蒂卡尔的玛雅遗址，危地马拉 (© THP Creative/Getty Images)](https://www.bing.com/search?q=%E8%92%82%E5%8D%A1%E5%B0%94%E7%9A%84%E7%8E%9B%E9%9B%85%E9%81%97%E5%9D%80&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_1920x1080.jpg)
+[普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥 (© Radius Images/Shutterstock)](https://www.bing.com/search?q=%E6%99%AE%E5%9F%83%E5%B8%83%E6%8B%89%E5%A4%A9%E4%B8%BB%E5%A0%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
