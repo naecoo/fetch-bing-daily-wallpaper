@@ -1,6 +1,6 @@
 
-**一片平静的水域**
+**通往太平洋之窗**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1920x1080.jpg)
-[在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%A5%A5%E5%85%8B%E5%BC%97%E8%AF%BA%E5%9F%BA%E5%9B%BD%E5%AE%B6%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CormorantBridge_ZH-CN7673299694_1920x1080.jpg)
+[加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%A1%A5%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
