@@ -1,6 +1,6 @@
 
-**一座承载历史的桥**
+**为了每个人，保护地球的生物多样性**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg)
-[塞纳河，巴黎，法国 (© StockByM/Getty Images)](https://www.bing.com/search?q=%E5%A1%9E%E7%BA%B3%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1920x1080.jpg)
+[阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)](https://www.bing.com/search?q=%E5%93%A5%E6%96%AF%E8%BE%BE%E9%BB%8E%E5%8A%A0+%E8%92%99%E6%B3%B0%E9%9F%A6%E5%B0%94%E5%BE%B7&amp;form=hpcapt&amp;mkt=zh-cn)
   
