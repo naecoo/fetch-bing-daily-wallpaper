@@ -1,6 +1,6 @@
 
-**俯瞰层叠的梯田**
+**人间天堂**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1920x1080.jpg)
-[乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)](https://www.bing.com/search?q=%E5%8D%B0%E5%BA%A6%E5%B0%BC%E8%A5%BF%E4%BA%9A%E4%B9%8C%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Antilles_ZH-CN8267285876_1920x1080.jpg)
+[萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)](https://www.bing.com/search?q=%E7%93%9C%E5%BE%B7%E7%BD%97%E6%99%AE%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
