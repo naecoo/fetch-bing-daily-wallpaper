@@ -1,6 +1,6 @@
 
-**桨叶动力**
+**值班爸爸**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1920x1080.jpg)
-[在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E5%86%B2%E6%B5%AA%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_1920x1080.jpg)
+[普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/search?q=%E7%88%B6%E4%BA%B2%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
