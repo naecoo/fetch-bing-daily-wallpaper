@@ -1,6 +1,6 @@
 
-**海湾之美**
+**一座宝库**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1920x1080.jpg)
-[芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/search?q=%E8%8A%BD%E5%BA%84&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg)
+[佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)](https://www.bing.com/search?q=%E4%BD%A9%E7%89%B9%E6%8B%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
