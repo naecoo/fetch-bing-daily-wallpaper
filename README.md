@@ -1,6 +1,6 @@
 
-**树林中的避难所**
+**河湾**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1920x1080.jpg)
-[米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州 (© Eddie Brady/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E8%82%AF%E8%89%B2%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg)
+[克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)](https://www.bing.com/search?q=%E6%91%A9%E6%B3%BD%E5%B0%94%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
