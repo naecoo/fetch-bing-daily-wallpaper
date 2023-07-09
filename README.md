@@ -1,6 +1,6 @@
 
-**河湾**
+**飘着香气的紫色海洋**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg)
-[克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)](https://www.bing.com/search?q=%E6%91%A9%E6%B3%BD%E5%B0%94%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg)
+[萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)](https://www.bing.com/search?q=%E8%96%B0%E8%A1%A3%E8%8D%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
