@@ -1,6 +1,6 @@
 
-**飘着香气的紫色海洋**
+**万家灯火**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg)
-[萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)](https://www.bing.com/search?q=%E8%96%B0%E8%A1%A3%E8%8D%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1920x1080.jpg)
+[Hong Kong SAR (© leungchopan/Getty Images)](https://www.bing.com/search?q=%E9%A6%99%E6%B8%AF%E7%89%B9%E5%88%AB%E8%A1%8C%E6%94%BF%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
