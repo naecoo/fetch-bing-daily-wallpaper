@@ -1,6 +1,6 @@
 
-**这只鸟长着尖尖的嘴**
+**这片湖泊可不是海市蜃楼**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1920x1080.jpg)
-[双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/search?q=%E5%8F%8C%E8%A7%92%E7%8A%80%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1920x1080.jpg)
+[敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)](https://www.bing.com/search?q=%E6%95%A6%E7%85%8C%E6%9C%88%E7%89%99%E6%B3%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
