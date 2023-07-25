@@ -1,6 +1,6 @@
 
-**粉红色，很好看**
+**和这些耐盐植物问好！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1920x1080.jpg)
-[托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/search?q=%E6%89%98%E9%9B%B7%E7%BB%B4%E8%80%B6%E5%93%88&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg)
+[朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E7%BA%A2%E6%A0%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
