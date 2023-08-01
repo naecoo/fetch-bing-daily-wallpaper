@@ -1,6 +1,6 @@
 
-**德纳里山的力量无可否认**
+**大自然色调的调色板**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg)
-[从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%BE%B7%E7%BA%B3%E9%87%8C%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg)
+[圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
