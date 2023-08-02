@@ -1,6 +1,6 @@
 
-**大自然色调的调色板**
+**绿松石般的泉水**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg)
-[圆顶礁国家公园的砂岩山丘，犹他州，美国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg)
+[泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E6%B4%9B%E6%96%87%E5%B0%BC%E4%BA%9A%E6%B3%BD%E4%BC%A6%E8%A5%BF%E8%87%AA%E7%84%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
