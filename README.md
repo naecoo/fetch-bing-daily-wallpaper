@@ -1,6 +1,6 @@
 
-**绿松石般的泉水**
+**一扇通向过去的窗**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg)
-[泽伦西自然保护区，斯洛文尼亚 (© Andrey Danilovich/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E6%B4%9B%E6%96%87%E5%B0%BC%E4%BA%9A%E6%B3%BD%E4%BC%A6%E8%A5%BF%E8%87%AA%E7%84%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg)
+[廷特恩修道院，威尔士 (© matthibcn/Getty Images)](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E5%BB%B7%E7%89%B9%E6%81%A9%E4%BF%AE%E9%81%93%E9%99%A2&amp;form=hpcapt&amp;mkt=zh-cn)
   
