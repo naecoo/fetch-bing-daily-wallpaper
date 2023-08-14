@@ -1,6 +1,6 @@
 
-**躲猫猫，我看见你了!**
+**发光的矩形广场**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg)
-[叶片上的小壁虎 (© Darren Greenwood/Alamy)](https://www.bing.com/search?q=%E5%A3%81%E8%99%8E%E8%9C%A5%E8%9C%B4&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg)
+[四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)](https://www.bing.com/search?q=%E9%99%B6%E5%B0%94%E7%B1%B3%E7%BA%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
