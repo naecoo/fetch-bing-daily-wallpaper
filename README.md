@@ -1,6 +1,6 @@
 
-**发光的矩形广场**
+**一把通向岛屿的钥匙**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg)
-[四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)](https://www.bing.com/search?q=%E9%99%B6%E5%B0%94%E7%B1%B3%E7%BA%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg)
+[基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/search?q=%E4%B8%83%E8%8B%B1%E9%87%8C%E5%A4%A7%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
