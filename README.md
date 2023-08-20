@@ -1,6 +1,6 @@
 
-**海上哨兵**
+**自内而外的光彩**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg)
-[起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)](https://www.bing.com/search?q=%E8%8B%B1%E5%9B%BD%E5%BE%B7%E6%96%87%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg)
+[翡翠湖，加拿大育空地区 (© artherng/Getty Images)](https://www.bing.com/search?q=%E5%8A%A0%E6%8B%BF%E5%A4%A7%E8%82%B2%E7%A9%BA%E5%9C%B0%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
