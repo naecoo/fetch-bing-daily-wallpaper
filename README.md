@@ -1,6 +1,6 @@
 
-**为罗马建筑“起立欢呼”**
+**溅起一潭水花**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg)
-[埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E5%9F%83%E5%B0%94%E6%9D%B0%E5%A7%86%E9%9C%B2%E5%A4%A9%E5%89%A7%E5%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg)
+[斯科加瀑布，冰岛 (© Maridav/Shutterstock)](https://www.bing.com/search?q=%E6%96%AF%E7%A7%91%E5%8A%A0%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
