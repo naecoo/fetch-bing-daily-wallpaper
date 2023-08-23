@@ -1,6 +1,6 @@
 
-**溅起一潭水花**
+**自然“鳍”观**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg)
-[斯科加瀑布，冰岛 (© Maridav/Shutterstock)](https://www.bing.com/search?q=%E6%96%AF%E7%A7%91%E5%8A%A0%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg)
+[鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%B5%B7%E8%9A%80%E6%9F%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
