@@ -1,6 +1,6 @@
 
-**自然“鳍”观**
+**这是你的土地**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg)
-[鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%B5%B7%E8%9A%80%E6%9F%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg)
+[黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
