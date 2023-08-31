@@ -1,6 +1,6 @@
 
-**你今天过得怎么样？**
+**火鸡尾蘑菇**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_1920x1080.jpg)
-[巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/search?q=%E5%B7%A8%E4%BA%BA%E6%9F%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_1920x1080.jpg)
+[火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国 (© Bill Gozansky/Alamy Stock Photo)](https://www.bing.com/search?q=%E8%98%91%E8%8F%87&amp;form=hpcapt&amp;mkt=zh-cn)
   
