@@ -1,6 +1,6 @@
 
-**准备好下锚了吗？**
+**沙漠之舟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg)
-[威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)](https://www.bing.com/search?q=%E5%B8%8C%E8%85%8A%E5%85%8B%E9%87%8C%E7%89%B9%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg)
+[沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E9%AA%86%E9%A9%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
