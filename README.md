@@ -1,6 +1,6 @@
 
-**简·奥斯汀的文学圈**
+**皇家寺庙的废墟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg)
-[巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%89%AB%E7%9B%B2%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg)
+[大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)](https://www.bing.com/search?q=%E6%B3%B0%E5%9B%BD%E5%A4%A7%E5%9F%8E%E5%BA%9C%E5%8E%86%E5%8F%B2%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
