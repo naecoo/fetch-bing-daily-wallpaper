@@ -1,6 +1,6 @@
 
-**杂色短尾鴗**
+**黑夜里的“彩虹”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg)
-[杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/search?q=%E6%9D%82%E8%89%B2%E7%9F%AD%E5%B0%BE%E9%B4%97&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg)
+[西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E8%BF%9E%E7%89%B9%E8%8C%B9&amp;form=hpcapt&amp;mkt=zh-cn)
   
