@@ -1,6 +1,6 @@
 
-**啊！仙纳度**
+**生日快乐**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1920x1080.jpg)
-[仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/search?q=%E4%BB%99%E7%BA%B3%E5%BA%A6%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_1920x1080.jpg)
+[雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E9%95%BF%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
   
