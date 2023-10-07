@@ -1,6 +1,6 @@
 
-**吃三文鱼自助餐的时间到了**
+**贝壳庇护所**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg)
-[灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)](https://www.bing.com/search?q=%E7%81%B0%E7%86%8A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg)
+[巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%AB%A0%E9%B1%BC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
