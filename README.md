@@ -1,6 +1,6 @@
 
-**贝壳庇护所**
+**古老的事故，古代的艺术**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg)
-[巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%AB%A0%E9%B1%BC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg)
+[弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)](https://www.bing.com/search?q=%E5%BC%97%E9%87%8C%E8%92%99%E7%89%B9%E5%B2%A9%E7%94%BB&amp;form=hpcapt&amp;mkt=zh-cn)
   
