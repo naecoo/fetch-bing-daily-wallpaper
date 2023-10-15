@@ -1,6 +1,6 @@
 
-**该位置已被占领**
+**确实令人着迷**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_1920x1080.jpg)
-[躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E6%B4%B2%E5%88%BA%E7%8C%AC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg)
+[金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
