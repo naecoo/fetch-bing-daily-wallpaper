@@ -1,6 +1,6 @@
 
-**黑衣美人**
+**恶灵们只想玩个开心。**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg)
-[普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)](https://www.bing.com/search?q=%E6%99%AE%E9%80%9A%E4%B9%8C%E9%B8%A6&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg)
+[万圣节南瓜灯 (© Bing Image Creator)](https://www.bing.com/search?q=%E4%B8%87%E5%9C%A3%E8%8A%82%E5%8D%97%E7%93%9C%E7%81%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
