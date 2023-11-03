@@ -1,6 +1,6 @@
 
-**发光的花朵**
+**为寒冷而生！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg)
-[卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%B5%B7%E8%8D%A8%E9%BA%BB%E6%B0%B4%E6%AF%8D&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg)
+[美洲野牛，黄石国家公园，怀俄明州，美国 (© Gary Gray/Getty Images)](https://www.bing.com/search?q=%E7%BE%8E%E6%B4%B2%E9%87%8E%E7%89%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
