@@ -1,6 +1,6 @@
 
-**宁静之地**
+**照亮你忧郁的心**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg)
-[石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E9%98%BF%E6%96%AF%E5%9B%BE%E9%87%8C%E4%BA%9A%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1920x1080.jpg)
+[佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)](https://www.bing.com/search?q=%E7%99%BE%E5%86%85%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
