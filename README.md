@@ -1,6 +1,6 @@
 
-**冬日里的壮丽美景**
+**秋天的影子**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg)
-[黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E9%BB%84%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg)
+[秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)](https://www.bing.com/search?q=%E7%99%BD%E6%A1%A6%E6%A0%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
