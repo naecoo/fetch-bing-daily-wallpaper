@@ -1,6 +1,6 @@
 
-**西方哲学的发源地**
+**该给靴子系上鞋带了！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg)
-[雅典和卫城，希腊 (© Mlenny/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%93%B2%E5%AD%A6%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg)
+[铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)](https://www.bing.com/search?q=%E5%A8%81%E6%96%AF%E5%BA%B7%E6%98%9F%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
