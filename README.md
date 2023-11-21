@@ -1,6 +1,6 @@
 
-**欢迎来到这个世界！**
+**人少景美的静谧之地**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg)
-[英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)](https://www.bing.com/search?q=%E7%81%B0%E6%B5%B7%E8%B1%B9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg)
+[大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E6%8F%90%E9%A1%BF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
