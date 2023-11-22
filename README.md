@@ -1,6 +1,6 @@
 
-**人少景美的静谧之地**
+**从深海到天空**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg)
-[大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E6%8F%90%E9%A1%BF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg)
+[泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)](https://www.bing.com/search?q=%E6%B3%B0%E5%BE%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
