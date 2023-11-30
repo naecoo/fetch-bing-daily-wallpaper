@@ -1,6 +1,6 @@
 
-**守望的老人**
+**为最酷的地方欢呼！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_1920x1080.jpg)
-[斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国 (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E6%96%AF%E5%87%AF%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_1920x1080.jpg)
+[罗斯海的冰山，南极洲 (© Michel Roggo/Minden Pictures)](https://www.bing.com/search?q=%E7%BD%97%E6%96%AF%E6%B5%B7&amp;form=hpcapt&amp;mkt=zh-cn)
   
