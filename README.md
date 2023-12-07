@@ -1,6 +1,6 @@
 
-**欧洲大峡谷**
+**不是那个泽西海岸!**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg)
-[韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)](https://www.bing.com/search?q=%E9%9F%A6%E5%B0%94%E4%B8%9C%E5%B3%A1%E8%B0%B7&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg)
+[拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/search?q=%E6%B3%BD%E8%A5%BF%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
