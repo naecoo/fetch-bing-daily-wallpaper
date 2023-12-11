@@ -1,6 +1,6 @@
 
-**想看看黄山的全貌吗？**
+**把你的世界涂成红色**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg)
-[黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)](https://www.bing.com/search?q=%E9%BB%84%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_1920x1080.jpg)
+[一品红 (© Yarygin/Getty Images)](https://www.bing.com/search?q=%E4%B8%80%E5%93%81%E7%BA%A2&amp;form=hpcapt&amp;mkt=zh-cn)
   
