@@ -1,6 +1,6 @@
 
-**小屋生活**
+**融为一体的猫头鹰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg)
-[传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E6%B2%83%E5%B0%94%E9%9F%A6%E5%B0%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg)
+[北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)](https://www.bing.com/search?q=%E5%8C%97%E6%96%B9%E7%8C%AB%E5%A4%B4%E9%B9%B0&amp;form=hpcapt&amp;mkt=zh-cn)
   
