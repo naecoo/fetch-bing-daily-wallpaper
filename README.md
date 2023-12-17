@@ -1,6 +1,6 @@
 
-**有羽毛的时尚达人**
+**山峦积雪**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1920x1080.jpg)
-[波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)](https://www.bing.com/search?q=%E6%B3%A2%E8%A5%BF%E7%B1%B3%E4%BA%9A%E5%A4%AA%E5%B9%B3%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg)
+[圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
