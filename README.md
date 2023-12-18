@@ -1,6 +1,6 @@
 
-**山峦积雪**
+**圣诞老人的波兰休息站**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg)
-[圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg)
+[城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%8D%8E%E6%B2%99%E5%9F%8E%E5%A0%A1%E5%B9%BF%E5%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
