@@ -1,6 +1,6 @@
 
-**斯洛文尼亚式的节日氛围**
+**冬季仙境中的精灵**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg)
-[卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)](https://www.bing.com/search?q=%E5%8D%A2%E5%B8%83%E5%B0%94%E9%9B%85%E9%82%A3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg)
+[天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E5%A4%A9%E9%B9%85%E6%B3%89%E6%B9%BF%E5%9C%B0%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
