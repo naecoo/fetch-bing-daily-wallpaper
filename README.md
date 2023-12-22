@@ -1,6 +1,6 @@
 
-**冬季仙境中的精灵**
+**它们看起来有话要说**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg)
-[天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E5%A4%A9%E9%B9%85%E6%B3%89%E6%B9%BF%E5%9C%B0%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg)
+[帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)](https://www.bing.com/search?q=%E5%B8%BD%E5%B8%A6%E4%BC%81%E9%B9%85&amp;form=hpcapt&amp;mkt=zh-cn)
   
