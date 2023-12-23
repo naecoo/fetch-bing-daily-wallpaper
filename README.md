@@ -1,6 +1,6 @@
 
-**它们看起来有话要说**
+**多么可爱的树枝啊！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg)
-[帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)](https://www.bing.com/search?q=%E5%B8%BD%E5%B8%A6%E4%BC%81%E9%B9%85&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg)
+[市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E7%88%B1%E6%B2%99%E5%B0%BC%E4%BA%9A%E5%A1%94%E5%B0%94%E5%9B%BE&amp;form=hpcapt&amp;mkt=zh-cn)
   
