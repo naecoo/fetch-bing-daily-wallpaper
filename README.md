@@ -1,6 +1,6 @@
 
-**多么可爱的树枝啊！**
+**圣诞快乐，亲爱的朋友们！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg)
-[市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E7%88%B1%E6%B2%99%E5%B0%BC%E4%BA%9A%E5%A1%94%E5%B0%94%E5%9B%BE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg)
+[驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)](https://www.bing.com/search?q=%E9%A9%AF%E9%B9%BF&amp;form=hpcapt&amp;mkt=zh-cn)
   
