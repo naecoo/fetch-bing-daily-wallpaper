@@ -1,6 +1,6 @@
 
-**大自然的平衡术**
+**瑞士的雪花漱漱落下**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1920x1080.jpg)
-[魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/search?q=%E9%AD%94%E9%AC%BC%E5%A4%A7%E7%90%86%E7%9F%B3%E4%BF%9D%E6%8A%A4%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg)
+[贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/search?q=%E8%B4%9D%E5%B0%94%E5%B0%BC%E7%BA%B3%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
