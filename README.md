@@ -1,6 +1,6 @@
 
-**瑞士的雪花漱漱落下**
+**乘着热气球向上飞**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg)
-[贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/search?q=%E8%B4%9D%E5%B0%94%E5%B0%BC%E7%BA%B3%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg)
+[格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/search?q=%E7%83%AD%E6%B0%94%E7%90%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
