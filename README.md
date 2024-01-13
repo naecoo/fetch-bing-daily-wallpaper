@@ -1,6 +1,6 @@
 
-**放慢脚步，享受旅途！**
+**白色羽毛交响曲**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_1920x1080.jpg)
-[哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)](https://www.bing.com/search?q=%E5%93%88%E7%BA%B3%E4%B9%8B%E8%B7%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg)
+[屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/search?q=%E5%A4%A9%E9%B9%85&amp;form=hpcapt&amp;mkt=zh-cn)
   
