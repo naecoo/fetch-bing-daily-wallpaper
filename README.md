@@ -1,6 +1,6 @@
 
-**在地球上还是在外星？**
+**加拿大式的小憩和放松**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg)
-[瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)](https://www.bing.com/search?q=%E7%93%A6%E8%8C%A8%E6%9B%BC%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1920x1080.jpg)
+[路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/search?q=%E7%8F%AD%E5%A4%AB%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E8%B7%AF%E6%98%93%E6%96%AF%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
   
