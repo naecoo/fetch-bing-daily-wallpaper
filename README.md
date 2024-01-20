@@ -1,6 +1,6 @@
 
-**冰雪极地的马可罗尼企鹅**
+**树梢上的故事**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_1920x1080.jpg)
-[马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E5%8F%AF%E7%BD%97%E5%B0%BC%E4%BC%81%E9%B9%85&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_1920x1080.jpg)
+[欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
   
