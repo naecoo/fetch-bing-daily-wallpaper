@@ -1,6 +1,6 @@
 
-**魔幻时刻**
+**印度洋之眼**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg)
-[冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%9C%A3%E5%85%8B%E9%B2%81%E6%96%AF%E5%8E%BF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg)
+[印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E9%A9%AC%E5%B0%94%E4%BB%A3%E5%A4%AB&amp;form=hpcapt&amp;mkt=zh-cn)
   
