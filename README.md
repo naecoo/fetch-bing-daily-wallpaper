@@ -1,6 +1,6 @@
 
-**印度洋之眼**
+**撒了一地的“钻石”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg)
-[印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/search?q=%E9%A9%AC%E5%B0%94%E4%BB%A3%E5%A4%AB&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_1920x1080.jpg)
+[钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/search?q=Diamond+Beach+Iceland&amp;form=hpcapt&amp;mkt=zh-cn)
   
