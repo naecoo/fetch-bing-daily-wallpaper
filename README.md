@@ -1,6 +1,6 @@
 
-**从干涸的沙漠变成田园**
+**缓缓下降**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg)
-[昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/search?q=%E6%98%86%E5%A3%AB%E5%85%B0%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg)
+[戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)](https://www.bing.com/search?q=+%E5%A5%A5%E5%9C%B0%E5%88%A9%E8%90%A8%E5%B0%94%E8%8C%A8%E5%A0%A1%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
