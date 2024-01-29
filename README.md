@@ -1,6 +1,6 @@
 
-**缓缓下降**
+**西班牙的小瑞士**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg)
-[戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)](https://www.bing.com/search?q=+%E5%A5%A5%E5%9C%B0%E5%88%A9%E8%90%A8%E5%B0%94%E8%8C%A8%E5%A0%A1%E5%B7%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1920x1080.jpg)
+[艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙 (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E9%98%BF%E5%B0%94%E7%93%A6%E5%A1%9E%E7%89%B9%E8%89%BE%E7%BA%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
