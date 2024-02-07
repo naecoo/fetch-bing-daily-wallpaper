@@ -1,6 +1,6 @@
 
-**海浪中的避风港**
+**沉睡的巨人**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_1920x1080.jpg)
-[圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)](https://www.bing.com/search?q=%E5%BC%80%E6%99%AE%E6%95%A6&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg)
+[胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)](https://www.bing.com/search?q=%E8%83%A1%E5%BE%B7%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
