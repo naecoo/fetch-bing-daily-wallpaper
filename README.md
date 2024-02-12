@@ -1,6 +1,6 @@
 
-**甜蜜的火山家园**
+**及时行乐！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg)
-[阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/search?q=%E5%8A%A0%E6%8B%89%E5%B8%95%E6%88%88%E6%96%AF%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1920x1080.jpg)
+[马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E8%92%82%C2%B7%E6%A0%BC%E6%8B%89%E6%96%AF%E7%8B%82%E6%AC%A2%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
