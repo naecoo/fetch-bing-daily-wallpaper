@@ -1,6 +1,6 @@
 
-**一个供市民休闲娱乐的公园**
+**一个天然的矛盾体**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1920x1080.jpg)
-[Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)](https://www.bing.com/search?q=%E5%B3%B0%E5%8C%BA%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_1920x1080.jpg)
+[火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/search?q=%E7%81%AB%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
