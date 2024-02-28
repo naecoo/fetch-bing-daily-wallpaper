@@ -1,6 +1,6 @@
 
-**随波逐流**
+**多过一天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_1920x1080.jpg)
-[班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images)](https://www.bing.com/search?q=%E7%8F%AD%E5%A0%A1%E5%9F%8E%E5%A0%A1+%E8%AF%BA%E6%A3%AE%E4%BC%AF%E5%85%B0%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_1920x1080.jpg)
+[欧亚红松鼠 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
   
