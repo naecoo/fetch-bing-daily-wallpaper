@@ -1,6 +1,6 @@
 
-**一位浑身斑点的杂技演员**
+**睡美人**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1920x1080.jpg)
-[树上的豹子，克鲁格国家公园，南非 (© Tonino De Marco/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg)
+[从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E9%9B%B7%E7%BA%B3%E5%B0%94%E7%81%AB%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
