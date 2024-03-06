@@ -1,6 +1,6 @@
 
-**尽情地嬉戏玩水吧！**
+**攀登新的高峰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg)
-[Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9EWahclella+Falls&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1920x1080.jpg)
+[Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%8A%A0%E6%B3%B0%E7%BD%97%E5%B0%BC%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
