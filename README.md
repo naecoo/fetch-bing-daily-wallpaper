@@ -1,6 +1,6 @@
 
-**攀登新的高峰**
+**世界新七大自然奇观之一**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1920x1080.jpg)
-[Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%8A%A0%E6%B3%B0%E7%BD%97%E5%B0%BC%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1920x1080.jpg)
+[伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)](https://www.bing.com/search?q=%E4%BC%8A%E7%93%9C%E8%8B%8F%E5%A4%A7%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
