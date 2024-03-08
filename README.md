@@ -1,6 +1,6 @@
 
-**世界新七大自然奇观之一**
+**因时间而改变**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1920x1080.jpg)
-[伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)](https://www.bing.com/search?q=%E4%BC%8A%E7%93%9C%E8%8B%8F%E5%A4%A7%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1920x1080.jpg)
+[比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%96%B0%E5%A2%A8%E8%A5%BF%E5%93%A5%E5%B7%9E%E6%AF%94%E6%96%AF%E7%AC%AC%E6%81%B6%E5%9C%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
