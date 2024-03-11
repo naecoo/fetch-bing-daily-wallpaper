@@ -1,6 +1,6 @@
 
-**醉人的山峦**
+**峡谷的守护者**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg)
-[Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利 (© Richard T. Nowitz/Getty Images)](https://www.bing.com/search?q=%E5%A8%81%E5%86%85%E6%89%98%E5%A4%A7%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg)
+[布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%B8%83%E8%8E%B1%E6%96%AF%E5%B3%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
