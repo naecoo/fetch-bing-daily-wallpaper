@@ -1,6 +1,6 @@
 
-**鸟瞰**
+**一个π**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg)
-[小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/search?q=%E5%B0%8F%E7%BA%A2%E9%B9%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1920x1080.jpg)
+[Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%9C%86%E5%91%A8%E7%8E%87%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
