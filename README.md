@@ -1,6 +1,6 @@
 
-**被竹子包围了**
+**今天，让我们穿绿衣裳吧！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_1920x1080.jpg)
-[正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E5%A4%A7%E7%86%8A%E7%8C%AB&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_1920x1080.jpg)
+[圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)](https://www.bing.com/search?q=%E7%88%B1%E5%B0%94%E5%85%B0%E5%87%AF%E9%87%8C%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
