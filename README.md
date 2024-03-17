@@ -1,6 +1,6 @@
 
-**今天，让我们穿绿衣裳吧！**
+**温柔的“沙丘巨人”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_1920x1080.jpg)
-[圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)](https://www.bing.com/search?q=%E7%88%B1%E5%B0%94%E5%85%B0%E5%87%AF%E9%87%8C%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1920x1080.jpg)
+[大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)](https://www.bing.com/search?q=%E5%8F%A4%E5%9F%8E%E6%AC%A7%E6%8B%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
