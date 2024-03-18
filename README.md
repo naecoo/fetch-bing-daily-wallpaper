@@ -1,6 +1,6 @@
 
-**温柔的“沙丘巨人”**
+**春日私语**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1920x1080.jpg)
-[大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)](https://www.bing.com/search?q=%E5%8F%A4%E5%9F%8E%E6%AC%A7%E6%8B%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg)
+[盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%89%81%E6%A1%83%E4%BB%81&amp;form=hpcapt&amp;mkt=zh-cn)
   
