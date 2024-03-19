@@ -1,6 +1,6 @@
 
-**春日私语**
+**粉嫩的春日美景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg)
-[盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/search?q=%E6%89%81%E6%A1%83%E4%BB%81&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1920x1080.jpg)
+[鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)](https://www.bing.com/search?q=%E6%98%A5%E5%88%86&amp;form=hpcapt&amp;mkt=zh-cn)
   
