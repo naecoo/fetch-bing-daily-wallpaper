@@ -1,6 +1,6 @@
 
-**粉嫩的春日美景**
+**森林多美好呀！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1920x1080.jpg)
-[鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)](https://www.bing.com/search?q=%E6%98%A5%E5%88%86&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_1920x1080.jpg)
+[布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%A3%AE%E6%9E%97%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
