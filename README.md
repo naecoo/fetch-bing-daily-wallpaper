@@ -1,6 +1,6 @@
 
-**潮汐探戈**
+**戏剧成为关注的焦点**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg)
-[海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/search?q=%E5%AE%81%E9%A1%BA%E6%B5%B7%E7%8D%AD%E6%B4%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg)
+[布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%88%8F%E5%89%A7%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
