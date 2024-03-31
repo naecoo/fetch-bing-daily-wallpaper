@@ -1,6 +1,6 @@
 
-**纯洁与优雅的象征**
+**岌岌可危的冰川**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1920x1080.jpg)
-[潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E7%99%BD%E9%B9%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1920x1080.jpg)
+[勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)](https://www.bing.com/search?q=%E5%86%B0%E6%B5%B7&amp;form=hpcapt&amp;mkt=zh-cn)
   
