@@ -1,6 +1,6 @@
 
-**一缕阳光下的林地**
+**希望彩虹留在这里**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1920x1080.jpg)
-[日德兰半岛的山毛榉树和野生海葵 ，丹麦 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/search?q=%E6%97%A5%E5%BE%B7%E5%85%B0%E5%8D%8A%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1920x1080.jpg)
+[At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)](https://www.bing.com/search?q=%E5%BD%A9%E8%99%B9%E7%8E%B0%E8%B1%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
