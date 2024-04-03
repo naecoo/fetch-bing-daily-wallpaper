@@ -1,6 +1,6 @@
 
-**希望彩虹留在这里**
+**沼泽地上的漫游者**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_1920x1080.jpg)
-[At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)](https://www.bing.com/search?q=%E5%BD%A9%E8%99%B9%E7%8E%B0%E8%B1%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_1920x1080.jpg)
+[红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/search?q=%E9%A9%B4%E7%BE%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
