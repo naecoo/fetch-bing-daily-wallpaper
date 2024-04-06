@@ -1,6 +1,6 @@
 
-**皇家景观**
+**看，我是树枝整理师！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_1920x1080.jpg)
-[姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/search?q=%E6%97%A5%E6%9C%AC%E5%A7%AC%E8%B7%AF%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1920x1080.jpg)
+[奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%B5%B7%E7%8B%B8%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
