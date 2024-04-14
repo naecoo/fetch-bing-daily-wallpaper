@@ -1,6 +1,6 @@
 
-**岩石保龄球**
+**介于文艺复兴与独创性之间**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg)
-[保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)](https://www.bing.com/search?q=%E4%BF%9D%E9%BE%84%E7%90%83%E6%B5%B7%E6%BB%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1920x1080.jpg)
+[香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)](https://www.bing.com/search?q=%E9%A6%99%E6%B3%A2%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
