@@ -1,6 +1,6 @@
 
-**介于文艺复兴与独创性之间**
+**灯光，相机，纽约！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_1920x1080.jpg)
-[香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)](https://www.bing.com/search?q=%E9%A6%99%E6%B3%A2%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1920x1080.jpg)
+[暮色中的曼哈顿下城联合广场，纽约，美国 (© Sean Pavone/Getty Images)](https://www.bing.com/search?q=%E8%81%94%E5%90%88%E5%B9%BF%E5%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
