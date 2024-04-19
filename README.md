@@ -1,6 +1,6 @@
 
-**历史的轮回**
+**保存，保护，享受！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg)
-[布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/search?q=%E5%B8%83%E7%BD%97%E5%BE%B7%E5%8A%A0%E7%8E%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg)
+[日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
