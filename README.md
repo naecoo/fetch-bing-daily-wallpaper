@@ -1,6 +1,6 @@
 
-**很高兴在这里见到你们！**
+**这棵树是个快乐的家伙！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1920x1080.jpg)
-[南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E4%BC%81%E9%B9%85%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg)
+[卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/search?q=%E6%A4%8D%E6%A0%91%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
