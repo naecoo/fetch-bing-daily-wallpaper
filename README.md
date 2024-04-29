@@ -1,6 +1,6 @@
 
-**被保存得很好的古建筑**
+**“草原大喵”的完美速度**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg)
-[福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)](https://www.bing.com/search?q=%E7%A6%8F%E5%BB%BA%E5%9C%9F%E6%A5%BC&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1920x1080.jpg)
+[清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images)](https://www.bing.com/search?q=%E7%8C%8E%E8%B1%B9&amp;form=hpcapt&amp;mkt=zh-cn)
   
