@@ -1,6 +1,6 @@
 
-**为墨西哥干杯!**
+**峰区一瞥**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg)
-[圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images)](https://www.bing.com/search?q=%E5%A2%A8%E8%A5%BF%E5%93%A5%E4%BA%94%E6%9C%88%E4%BA%94%E6%97%A5%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1920x1080.jpg)
+[罗奇斯山脊，英格兰峰区 (© George W Johnson/Getty Images)](https://www.bing.com/search?q=%E5%B3%B0%E5%8C%BA%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
