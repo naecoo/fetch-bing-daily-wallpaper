@@ -1,6 +1,6 @@
 
-**“深渊”探险**
+**迷失在蓝色的美丽国度**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_1920x1080.jpg)
-[通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)](https://www.bing.com/search?q=%E5%8D%A1%E5%B0%94%E6%96%AF%E5%B7%B4%E5%BE%B7%E6%B4%9E%E7%AA%9F%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg)
+[焦特布尔蓝色之城，印度 (© cinoby/Getty Images)](https://www.bing.com/search?q=%E7%84%A6%E7%89%B9%E5%B8%83%E5%B0%94+%E5%8D%B0%E5%BA%A6&amp;form=hpcapt&amp;mkt=zh-cn)
   
