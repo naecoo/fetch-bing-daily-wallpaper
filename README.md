@@ -1,6 +1,6 @@
 
-**我简直不敢相信！**
+**充满茶香的一天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg)
-[蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E8%9C%9C%E8%9C%82%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg)
+[卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%8C%B6%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
