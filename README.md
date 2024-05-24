@@ -1,6 +1,6 @@
 
-**寻找一个“庇护所”**
+**沙丘守护者**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1920x1080.jpg)
-[印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B5%B7%E9%BE%9F%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg)
+[阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E4%BC%8A%E7%89%B9%E6%9C%AC%E5%93%88%E6%9D%9C+%E6%91%A9%E6%B4%9B%E5%93%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
