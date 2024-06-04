@@ -1,6 +1,6 @@
 
-**物以类聚**
+**世界环境日快乐！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1920x1080.jpg)
-[黑胸蜂虎，巴迪亚国家公园，尼泊尔 (© PACO COMO/Shutterstock)](https://www.bing.com/search?q=%E9%BB%91%E8%83%B8%E8%9C%82%E8%99%8E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg)
+[马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%8E%AF%E5%A2%83%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
