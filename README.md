@@ -1,6 +1,6 @@
 
-**世界环境日快乐！**
+**有趣的野生动物!**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg)
-[马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%8E%AF%E5%A2%83%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg)
+[蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E7%BA%A2%E9%B9%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
