@@ -1,6 +1,6 @@
 
-**河流的交汇**
+**令人窒息的寂静**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_1920x1080.jpg)
-[复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images)](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E4%B9%8B%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg)
+[巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%B7%B4%E5%BE%B7%E7%BA%B3%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
