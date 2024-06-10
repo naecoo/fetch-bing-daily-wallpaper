@@ -1,6 +1,6 @@
 
-**比赛将在这里开始！**
+**这些羚羊是真正的珍宝**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg)
-[龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)](https://www.bing.com/search?q=%E7%AB%AF%E5%8D%88%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg)
+[热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%8D%97%E9%9D%9E%E5%89%91%E7%BE%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
