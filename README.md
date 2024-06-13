@@ -1,6 +1,6 @@
 
-**瓷砖的故事**
+**孤独，但不寂寞**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg)
-[雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)](https://www.bing.com/search?q=%E6%92%92%E9%A9%AC%E5%B0%94%E7%BD%95&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg)
+[佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)](https://www.bing.com/search?q=%E4%BD%A9%E5%A7%AC%E6%B9%BE%E7%81%AF%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
   
