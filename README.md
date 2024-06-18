@@ -1,6 +1,6 @@
 
-**鲁冰花盛放的夏季**
+**一座历史古迹**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_1920x1080.jpg)
-[日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E5%A5%88%E5%B1%B1%E5%8D%8A%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg)
+[库克斯港的水塔，德国 (© Andreas Vogel/Alamy)](https://www.bing.com/search?q=%E5%BA%93%E5%85%8B%E6%96%AF%E6%B8%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
