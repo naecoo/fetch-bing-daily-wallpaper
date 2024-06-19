@@ -1,6 +1,6 @@
 
-**一座历史古迹**
+**夏天的脚步近了**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg)
-[库克斯港的水塔，德国 (© Andreas Vogel/Alamy)](https://www.bing.com/search?q=%E5%BA%93%E5%85%8B%E6%96%AF%E6%B8%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg)
+[科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)](https://www.bing.com/search?q=%E9%A9%AC%E5%85%B6%E9%A1%BF%E7%8E%8B%E5%9B%BD&amp;form=hpcapt&amp;mkt=zh-cn)
   
