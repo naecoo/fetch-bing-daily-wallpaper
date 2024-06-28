@@ -1,6 +1,6 @@
 
-**最具加勒比海风情的海岛**
+**只见树木，不见森林**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg)
-[诺曼底海岸的绍塞群岛，法国 (© Tuul &amp; Bruno Morandi/Getty Images)](https://www.bing.com/search?q=%E7%BB%8D%E5%A1%9E%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg)
+[宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)](https://www.bing.com/search?q=%E5%B1%B1%E6%AF%9B%E6%A6%89%E6%9E%97&amp;form=hpcapt&amp;mkt=zh-cn)
   
