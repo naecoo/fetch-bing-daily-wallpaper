@@ -1,6 +1,6 @@
 
-**感恩的巨嘴鸟**
+**你是81亿人口中的一员**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_1920x1080.jpg)
-[领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/search?q=%E9%A2%86%E7%B0%87%E8%88%8C%E5%B7%A8%E5%98%B4%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg)
+[甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E4%BA%BA%E5%8F%A3%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
