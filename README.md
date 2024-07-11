@@ -1,6 +1,6 @@
 
-**你是81亿人口中的一员**
+**风雨无阻**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg)
-[甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E4%BA%BA%E5%8F%A3%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg)
+[雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)](https://www.bing.com/search?q=%E9%9B%B7%E5%B0%BC%E5%B0%94%E5%B1%B1%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
