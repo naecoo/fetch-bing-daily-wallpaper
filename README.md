@@ -1,6 +1,6 @@
 
-**高耸入云的历史建筑**
+**意义深远**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_1920x1080.jpg)
-[德国中世纪城市罗滕堡 (© kanuman/Getty Images)](https://www.bing.com/search?q=%E5%BE%B7%E5%9B%BD%E7%BD%97%E6%BB%95%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg)
+[Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/search?q=%E7%8F%8A%E7%91%9A%E7%A4%81%E4%BF%9D%E6%8A%A4%E6%84%8F%E8%AF%86%E5%91%A8&amp;form=hpcapt&amp;mkt=zh-cn)
   
