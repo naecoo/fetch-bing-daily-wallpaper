@@ -1,6 +1,6 @@
 
-**意义深远**
+**巧妙的伪装**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg)
-[Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/search?q=%E7%8F%8A%E7%91%9A%E7%A4%81%E4%BF%9D%E6%8A%A4%E6%84%8F%E8%AF%86%E5%91%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg)
+[河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)](https://www.bing.com/search?q=%E7%BE%8E%E6%B4%B2%E8%99%8E&amp;form=hpcapt&amp;mkt=zh-cn)
   
