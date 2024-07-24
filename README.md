@@ -1,6 +1,6 @@
 
-**可爱的羊咩咩一家**
+**深入其中**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg)
-[北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)](https://www.bing.com/search?q=%E5%A0%82%E8%A1%A8%E4%BA%B2&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg)
+[大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E7%83%9F%E5%B1%B1%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
