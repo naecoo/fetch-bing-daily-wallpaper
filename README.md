@@ -1,6 +1,6 @@
 
-**完美的葡萄酒**
+**色彩斑斓的海岸线**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg)
-[摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)](https://www.bing.com/search?q=%E6%B3%95%E5%B0%94%E8%8C%A8%E8%91%A1%E8%90%84%E9%85%92%E4%BA%A7%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg)
+[斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)](https://www.bing.com/search?q=%E7%91%9E%E5%85%B8%E6%96%AF%E7%A7%91%E8%AE%B7%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
