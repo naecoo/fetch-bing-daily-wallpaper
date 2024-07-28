@@ -1,6 +1,6 @@
 
-**色彩斑斓的海岸线**
+**咆哮与探索**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg)
-[斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)](https://www.bing.com/search?q=%E7%91%9E%E5%85%B8%E6%96%AF%E7%A7%91%E8%AE%B7%E9%83%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1920x1080.jpg)
+[科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%88%B1%E8%99%8E%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
