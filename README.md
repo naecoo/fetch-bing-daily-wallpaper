@@ -1,6 +1,6 @@
 
-**中世纪的曼哈顿**
+**这里有“胡图”吗？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg)
-[圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)](https://www.bing.com/search?q=%E5%9C%A3%E5%90%89%E7%B1%B3%E5%B0%BC%E4%BA%9A%E8%AF%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg)
+[石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/search?q=%E5%B8%83%E8%8E%B1%E6%96%AF%E5%B3%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
