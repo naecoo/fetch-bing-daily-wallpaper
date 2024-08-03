@@ -1,6 +1,6 @@
 
-**武隆景区的“三生三世”**
+**我是你的朋友**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1920x1080.jpg)
-[天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/search?q=%E5%A4%A9%E7%94%9F%E4%B8%89%E6%A1%A5+&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1920x1080.jpg)
+[黑斑羚和红嘴牛椋鸟，南非 (© Matrishva Vyas/Getty Images)](https://www.bing.com/search?q=%E5%8F%8B%E8%B0%8A%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
