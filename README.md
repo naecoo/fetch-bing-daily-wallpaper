@@ -1,6 +1,6 @@
 
-**迎合所有人口味的景点**
+**不止是航海需要它**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg)
-[莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)](https://www.bing.com/search?q=%E8%8E%AB%E6%B4%9B%E5%9F%BA%E5%B0%BC%E9%99%A8%E7%9F%B3%E5%9D%91&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg)
+[圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)](https://www.bing.com/search?q=%E5%9C%A3%E7%BA%A6%E7%91%9F%E5%A4%AB%E5%8C%97%E7%A0%81%E5%A4%B4%E5%86%85%E7%81%AF%E5%92%8C%E5%A4%96%E7%81%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
