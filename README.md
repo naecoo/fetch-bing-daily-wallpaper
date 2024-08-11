@@ -1,6 +1,6 @@
 
-**人迹罕至的路**
+**你的声音嘹亮而清晰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg)
-[通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)](https://www.bing.com/search?q=%E6%B8%A9%E5%93%A5%E5%8D%8E%E5%B2%9B%E8%82%AF%E5%B0%BC%E8%BF%AA%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg)
+[非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
