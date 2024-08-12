@@ -1,6 +1,6 @@
 
-**你的声音嘹亮而清晰**
+**亚得里亚海高地**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_1920x1080.jpg)
-[非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg)
+[特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)](https://www.bing.com/search?q=%E7%89%B9%E6%8B%89%E6%96%AF%E5%A5%91%E5%8D%A1%E8%87%AA%E7%84%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
