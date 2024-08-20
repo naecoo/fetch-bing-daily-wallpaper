@@ -1,6 +1,6 @@
 
-**鹿和羚羊嬉戏的地方**
+**等待前往加拉帕戈斯群岛**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg)
-[大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%A4%A7%E6%8F%90%E9%A1%BF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg)
+[纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/search?q=%E7%BA%B3%E6%96%AF%E5%8D%A1%E9%B2%A3%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
