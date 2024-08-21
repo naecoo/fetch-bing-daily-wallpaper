@@ -1,6 +1,6 @@
 
-**等待前往加拉帕戈斯群岛**
+**晨曦之光**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg)
-[纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://www.bing.com/search?q=%E7%BA%B3%E6%96%AF%E5%8D%A1%E9%B2%A3%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg)
+[海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/search?q=%E9%A9%AC%E9%87%8C%E5%85%B0%E5%B7%9E%E6%B5%B7%E6%B4%8B%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
   
