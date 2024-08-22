@@ -1,6 +1,6 @@
 
-**晨曦之光**
+**通往过去的大门**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg)
-[海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/search?q=%E9%A9%AC%E9%87%8C%E5%85%B0%E5%B7%9E%E6%B5%B7%E6%B4%8B%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg)
+[帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)](https://www.bing.com/search?q=%E5%B8%95%E4%BE%AC%E8%93%9D%E5%8E%86%E5%8F%B2%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
