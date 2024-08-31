@@ -1,6 +1,6 @@
 
-**沙丘日和沙漠烟霞**
+**小船轻轻划过泰晤士河**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg)
-[撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)](https://www.bing.com/search?q=%E8%B4%BE%E5%A5%88%E7%89%B9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_1920x1080.jpg)
+[泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)](https://www.bing.com/search?q=%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
