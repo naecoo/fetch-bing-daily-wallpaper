@@ -1,6 +1,6 @@
 
-**自然与人类的天堂**
+**古老又神秘**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg)
-[雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/search?q=%E9%9B%B7%E8%80%B6%E6%96%AF%E5%9B%BD%E5%AE%B6%E6%B5%B7%E5%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg)
+[阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E8%83%A1%E6%B1%A4%E5%8A%A0%E9%87%8C%E5%9F%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
