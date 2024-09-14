@@ -1,6 +1,6 @@
 
-**古老又神秘**
+**香料红和水晶蓝**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg)
-[阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E8%83%A1%E6%B1%A4%E5%8A%A0%E9%87%8C%E5%9F%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg)
+[阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)](https://www.bing.com/search?q=%E5%8D%A1%E6%8B%89%E5%B8%83%E9%87%8C%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
