@@ -1,6 +1,6 @@
 
-**云中之城**
+**埃尔博河上空的银河**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg)
-[郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/search?q=%E9%83%A1%E4%B8%8A%E5%85%AB%E5%B9%A1%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg)
+[埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E4%BC%AF%E5%A1%94%E7%9C%81&amp;form=hpcapt&amp;mkt=zh-cn)
   
