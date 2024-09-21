@@ -1,6 +1,6 @@
 
-**为慕尼黑啤酒节干杯！**
+**陷入沉思**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg)
-[Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/search?q=%E6%85%95%E5%B0%BC%E9%BB%91%E5%95%A4%E9%85%92%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg)
+[巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B9%9D%E6%9C%88%E5%88%86%E7%82%B9&amp;form=hpcapt&amp;mkt=zh-cn)
   
