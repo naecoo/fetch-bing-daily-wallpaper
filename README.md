@@ -1,6 +1,6 @@
 
-**你会相信这种观点吗？**
+**古代巨人的王国**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1920x1080.jpg)
-[斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/search?q=%E6%96%AF%E5%8D%A1%E5%A4%AB%E5%A1%94%E5%B1%B1+%E5%86%B0%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg)
+[巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E7%BA%A2%E6%9D%89%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
