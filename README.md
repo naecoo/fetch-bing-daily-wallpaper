@@ -1,6 +1,6 @@
 
-**古代巨人的王国**
+**呼叫所有巨嘴鸟的粉丝**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg)
-[巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E7%BA%A2%E6%9D%89%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1920x1080.jpg)
+[蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/search?q=%E8%93%9D%E6%96%91%E5%B7%A8%E5%98%B4%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
