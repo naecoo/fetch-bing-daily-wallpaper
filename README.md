@@ -1,6 +1,6 @@
 
-**海湾群岛的光芒**
+**连接康涅狄格州**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg)
-[日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/search?q=%E6%B5%B7%E6%B9%BE%E5%B2%9B%E5%9B%BD%E5%AE%B6%E6%B5%B7%E5%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg)
+[横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)](https://www.bing.com/search?q=%E8%A5%BF%E5%BA%B7%E6%B2%83%E5%B0%94%E5%BB%8A%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
