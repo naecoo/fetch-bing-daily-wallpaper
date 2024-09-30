@@ -1,6 +1,6 @@
 
-**随浮冰漂流**
+**绝美的秋日风景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_1920x1080.jpg)
-[斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)](https://www.bing.com/search?q=%E6%B5%B7%E8%B1%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg)
+[禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E7%A6%BE%E6%9C%A8%E6%9D%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
