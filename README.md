@@ -1,6 +1,6 @@
 
-**绝美的秋日风景**
+**河流的狂野舞蹈**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg)
-[禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E7%A6%BE%E6%9C%A8%E6%9D%91&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_1920x1080.jpg)
+[温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)](https://www.bing.com/search?q=%E6%B8%A9%E5%BE%B7%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
