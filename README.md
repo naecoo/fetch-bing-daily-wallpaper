@@ -1,6 +1,6 @@
 
-**一轮蓝月亮**
+**跟着老师走！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg)
-[木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%A9%BA%E9%97%B4%E5%91%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg)
+[东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%95%99%E5%B8%88%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
