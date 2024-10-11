@@ -1,6 +1,6 @@
 
-**云海奇观**
+**飞越各大洲**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg)
-[黄山云海，安徽省，中国 (© yangyang1991/Getty Images)](https://www.bing.com/search?q=%E9%87%8D%E9%98%B3%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_1920x1080.jpg)
+[林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)](https://www.bing.com/search?q=%E6%9E%97%E9%B8%B3%E9%B8%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
