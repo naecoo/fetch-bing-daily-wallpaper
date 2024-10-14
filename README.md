@@ -1,6 +1,6 @@
 
-**沙滩的秘密和日落**
+**生存竞赛**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_1920x1080.jpg)
-[可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)](https://www.bing.com/search?q=%E6%9E%9C%E9%98%BF%E9%82%A6+%E5%8D%B0%E5%BA%A6&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg)
+[马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)](https://www.bing.com/search?q=%E8%A7%92%E9%A9%AC%E5%A4%A7%E8%BF%81%E5%BE%99&amp;form=hpcapt&amp;mkt=zh-cn)
   
