@@ -1,6 +1,6 @@
 
-**生存竞赛**
+**发掘过去**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg)
-[马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)](https://www.bing.com/search?q=%E8%A7%92%E9%A9%AC%E5%A4%A7%E8%BF%81%E5%BE%99&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg)
+[侏罗纪海岸的箭石和菊石化石，多塞特郡，英国 (© Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%8C%96%E7%9F%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
