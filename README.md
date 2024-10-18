@@ -1,6 +1,6 @@
 
-**邂逅秋日的林荫道**
+**立足现在，发掘过去**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg)
-[曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)](https://www.bing.com/search?q=%E6%9B%BC%E5%93%88%E9%A1%BF%E4%B8%AD%E5%A4%AE%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg)
+[哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%80%83%E5%8F%A4%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
