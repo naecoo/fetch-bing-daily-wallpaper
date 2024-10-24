@@ -1,6 +1,6 @@
 
-**“淘金热”后的鬼城**
+**恐怖的高度**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg)
-[博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%8D%9A%E8%BF%AA%E5%B7%9E%E7%AB%8B%E5%8E%86%E5%8F%B2%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg)
+[沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)](https://www.bing.com/search?q=%E7%A7%91%E5%AD%A6%E6%80%AA%E4%BA%BA%E5%B0%8F%E8%AF%B4&amp;form=hpcapt&amp;mkt=zh-cn)
   
