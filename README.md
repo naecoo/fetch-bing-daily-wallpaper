@@ -1,6 +1,6 @@
 
-**恐怖的高度**
+**海边的神秘树林**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_1920x1080.jpg)
-[沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)](https://www.bing.com/search?q=%E7%A7%91%E5%AD%A6%E6%80%AA%E4%BA%BA%E5%B0%8F%E8%AF%B4&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_1920x1080.jpg)
+[幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%AE%81%E5%93%88%E6%A0%B9&amp;form=hpcapt&amp;mkt=zh-cn)
   
