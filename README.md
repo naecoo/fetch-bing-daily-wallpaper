@@ -1,6 +1,6 @@
 
-**雕刻时间到了**
+**猫头鹰的叫声在萦绕**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg)
-[南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%8D%97%E7%93%9C&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg)
+[大雕鸮 (© Mark Newman/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E9%9B%95%E9%B8%AE&amp;form=hpcapt&amp;mkt=zh-cn)
   
