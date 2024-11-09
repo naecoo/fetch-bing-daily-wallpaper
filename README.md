@@ -1,6 +1,6 @@
 
-**红尘中的宇宙美景**
+**飞行中的火烈鸟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg)
-[银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E4%BC%8A%E7%89%B9%E6%9C%AC%E5%93%88%E6%9D%9C%E6%9D%9C&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg)
+[加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/search?q=%E5%8A%A0%E5%8B%92%E6%AF%94%E7%81%AB%E7%83%88%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
