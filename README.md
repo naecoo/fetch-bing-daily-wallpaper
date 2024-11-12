@@ -1,6 +1,6 @@
 
-**拱门之下**
+**海中的“狮子王”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg)
-[透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)](https://www.bing.com/search?q=%E7%8A%B9%E4%BB%96%E5%B7%9E%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_1920x1080.jpg)
+[巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)](https://www.bing.com/search?q=%E6%B5%B7%E7%8B%AE&amp;form=hpcapt&amp;mkt=zh-cn)
   
