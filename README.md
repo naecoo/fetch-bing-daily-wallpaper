@@ -1,6 +1,6 @@
 
-**苏格兰高地的马鹿**
+**一直指引着方向**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_1920x1080.jpg)
-[加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)](https://www.bing.com/search?q=%E9%A9%AC%E9%B9%BF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_1920x1080.jpg)
+[波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E6%B3%A2%E6%96%AF%E8%80%83%E5%B0%94%E7%81%AF%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
   
