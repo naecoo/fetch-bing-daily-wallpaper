@@ -1,6 +1,6 @@
 
-**悬崖上的城堡**
+**大自然的密码**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg)
-[萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)](https://www.bing.com/search?q=%E6%8B%89%E8%90%A8%E5%A4%AB%E6%8B%89%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg)
+[多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://www.bing.com/search?q=%E6%96%90%E6%B3%A2%E9%82%A3%E5%A5%91%E7%BA%AA%E5%BF%B5%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
