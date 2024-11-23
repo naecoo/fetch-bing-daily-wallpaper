@@ -1,6 +1,6 @@
 
-**大自然的密码**
+**潮汐与暮色**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg)
-[多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)](https://www.bing.com/search?q=%E6%96%90%E6%B3%A2%E9%82%A3%E5%A5%91%E7%BA%AA%E5%BF%B5%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg)
+[州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/search?q=%E7%B4%A2%E8%AF%BA%E9%A9%AC%E6%B5%B7%E5%B2%B8%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
