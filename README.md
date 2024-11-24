@@ -1,6 +1,6 @@
 
-**潮汐与暮色**
+**野生动物的生活**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg)
-[州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/search?q=%E7%B4%A2%E8%AF%BA%E9%A9%AC%E6%B5%B7%E5%B2%B8%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg)
+[马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/search?q=%E8%82%AF%E5%B0%BC%E4%BA%9A%E5%AE%89%E5%8D%9A%E5%A1%9E%E5%88%A9%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
