@@ -1,6 +1,6 @@
 
-**巨人的安息之地**
+**山峰从云层中探出头来**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg)
-[秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)](https://www.bing.com/search?q=%E6%AF%94%E5%88%A9%E6%97%B6%E5%B8%83%E6%B0%B8%E5%B8%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg)
+[日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E9%98%BF%E8%A5%BF%E5%B0%BC%E5%8D%9A%E5%9B%A0%E5%B1%B1%E7%9C%81%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
