@@ -1,6 +1,6 @@
 
-**石灰华塔的崛起**
+**一路通往童话之路**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg)
-[莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%8A%A0%E5%88%A9%E7%A6%8F%E5%B0%BC%E4%BA%9A%E5%B7%9E%E8%8E%AB%E8%AF%BA%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg)
+[鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E8%BF%9E%E6%B3%8A%E9%9C%9E%E6%B9%BE&amp;form=hpcapt&amp;mkt=zh-cn)
   
