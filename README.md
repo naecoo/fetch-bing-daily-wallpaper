@@ -1,6 +1,6 @@
 
-**一路通往童话之路**
+**自然奇观的蓝色魅力**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg)
-[鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E8%BF%9E%E6%B3%8A%E9%9C%9E%E6%B9%BE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg)
+[里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E4%BA%9A%E5%B0%94%E5%A4%9A%E5%8D%A1%E5%8D%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
