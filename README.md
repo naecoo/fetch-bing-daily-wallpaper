@@ -1,6 +1,6 @@
 
-**自然奇观的蓝色魅力**
+**巴黎圣母院再度回归**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_1920x1080.jpg)
-[里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E4%BA%9A%E5%B0%94%E5%A4%9A%E5%8D%A1%E5%8D%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg)
+[巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)](https://www.bing.com/search?q=%E5%B7%B4%E9%BB%8E%E5%9C%A3%E6%AF%8D%E9%99%A2&amp;form=hpcapt&amp;mkt=zh-cn)
   
