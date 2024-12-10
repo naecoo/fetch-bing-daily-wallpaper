@@ -1,6 +1,6 @@
 
-**世界的尽头？不完全是**
+**山峰的“胜利三重奏”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg)
-[被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/search?q=%E5%BA%B7%E6%B2%83%E5%B0%94%E9%83%A1%E5%85%B0%E5%85%B9%E8%A7%92&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg)
+[拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)](https://www.bing.com/search?q=%E6%8B%89%E7%93%A6%E9%9B%B7%E5%A4%9A%E4%B8%89%E5%B3%B0%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
