@@ -1,6 +1,6 @@
 
-**冲浪、沙滩和圣诞老人**
+**准备好发泄一些压力了吗？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg)
-[水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)](https://www.bing.com/search?q=%E5%8A%A0%E5%88%A9%E7%A6%8F%E5%B0%BC%E4%BA%9A%E5%B7%9E%E5%9C%A3%E5%9C%B0%E4%BA%9A%E5%93%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_1920x1080.jpg)
+[钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B8%B9%E9%A1%B6%E9%B9%A4&amp;form=hpcapt&amp;mkt=zh-cn)
   
