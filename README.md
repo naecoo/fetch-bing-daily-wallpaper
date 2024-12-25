@@ -1,6 +1,6 @@
 
-**传说中的风景**
+**节日还在继续**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg)
-[科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)](https://www.bing.com/search?q=%E7%A7%91%E7%93%A6%E4%B8%9C%E5%8A%A0%E5%8E%86%E5%8F%B2&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1920x1080.jpg)
+[莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)](https://www.bing.com/search?q=%E8%8A%82%E7%A4%BC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
