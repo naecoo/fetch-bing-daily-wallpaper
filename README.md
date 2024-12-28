@@ -1,6 +1,6 @@
 
-**保护海洋生物——绿海龟**
+**圣山之上**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg)
-[一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)](https://www.bing.com/search?q=%E7%BB%BF%E6%B5%B7%E9%BE%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1920x1080.jpg)
+[婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)](https://www.bing.com/search?q=%E5%A9%86%E7%BD%97%E6%B5%AE%E5%B1%A0%E5%A4%A7%E4%BD%9B%E5%AF%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
