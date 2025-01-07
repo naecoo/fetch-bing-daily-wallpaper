@@ -1,6 +1,6 @@
 
-**岩石与滚石**
+**银装素裹，巍峨壮丽**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg)
-[日落时的摩拉基大圆石，南岛，新西兰 (© Douglas Pearson/eStock Photo)](https://www.bing.com/search?q=%E6%91%A9%E6%8B%89%E5%9F%BA%E5%A4%A7%E5%9C%86%E7%9F%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg)
+[被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E9%95%BF%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
   
