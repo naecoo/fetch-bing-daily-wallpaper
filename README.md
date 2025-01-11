@@ -1,6 +1,6 @@
 
-**旧时代的古老拱门**
+**深海中的锐利目光**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1920x1080.jpg)
-[梅克内斯的Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock)](https://www.bing.com/search?q=%E6%A2%85%E5%85%8B%E5%86%85%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1920x1080.jpg)
+[大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures)](https://www.bing.com/search?q=%E5%AE%9D%E7%9F%B3%E5%A4%A7%E7%9C%BC%E9%B2%B7%E9%B1%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
