@@ -1,6 +1,6 @@
 
-**宁静之地**
+**魔鬼与自然的气息**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg)
-[Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)](https://www.bing.com/search?q=%E8%90%A8%E9%98%BF%E6%8B%89%C2%B7%E5%BE%B7%E6%8B%89%E8%B0%A2%E6%8B%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg)
+[Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)](https://www.bing.com/search?q=%E7%95%99%E5%B0%BC%E6%B1%AA%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
