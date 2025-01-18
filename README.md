@@ -1,6 +1,6 @@
 
-**1,001座白色沙丘**
+**一座适合神居住的石窟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1920x1080.jpg)
-[白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)](https://www.bing.com/search?q=%E6%96%B0%E5%A2%A8%E8%A5%BF%E5%93%A5%E5%B7%9E%E7%99%BD%E6%B2%99%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1920x1080.jpg)
+[海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)](https://www.bing.com/search?q=%E6%B5%B7%E7%8E%8B%E6%98%9F%E7%9F%B3%E7%AA%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
