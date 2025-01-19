@@ -1,6 +1,6 @@
 
-**一座适合神居住的石窟**
+**松鼠之趣**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1920x1080.jpg)
-[海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)](https://www.bing.com/search?q=%E6%B5%B7%E7%8E%8B%E6%98%9F%E7%9F%B3%E7%AA%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg)
+[欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
   
