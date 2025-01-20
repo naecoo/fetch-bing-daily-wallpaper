@@ -1,6 +1,6 @@
 
-**松鼠之趣**
+**迷人的海湾风光**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg)
-[欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg)
+[俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)](https://www.bing.com/search?q=%E9%82%A3%E4%B8%8D%E5%8B%92%E6%96%AF%E6%B9%BE&amp;form=hpcapt&amp;mkt=zh-cn)
   
