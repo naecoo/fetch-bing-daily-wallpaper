@@ -1,6 +1,6 @@
 
-**迷人的海湾风光**
+**在失落之城发现美**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg)
-[俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)](https://www.bing.com/search?q=%E9%82%A3%E4%B8%8D%E5%8B%92%E6%96%AF%E6%B9%BE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg)
+[代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/search?q=%E4%BD%A9%E7%89%B9%E6%8B%89%E4%BB%A3%E5%B0%94%E4%BF%AE%E9%81%93%E9%99%A2&amp;form=hpcapt&amp;mkt=zh-cn)
   
