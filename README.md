@@ -1,6 +1,6 @@
 
-**优雅地老去**
+**激发你的好奇心**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1920x1080.jpg)
-[比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E6%B4%B2%E5%B1%B1%E6%AF%9B%E6%A6%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1920x1080.jpg)
+[琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/search?q=%E7%90%90%E7%BD%97%E4%BA%9A%E6%96%AF%E5%BE%B7%E7%A5%9E%E5%BA%99&amp;form=hpcapt&amp;mkt=zh-cn)
   
