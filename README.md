@@ -1,6 +1,6 @@
 
-**春节快乐！**
+**再次冲向战斗**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_1920x1080.jpg)
-[南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)](https://www.bing.com/search?q=2025%E5%B9%B4%E8%9B%87%E5%B9%B4%E6%98%A5%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_1920x1080.jpg)
+[罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%A5%A5%E5%BE%B7%E8%90%A8%E5%92%8C%E4%BD%A9%E8%BF%AA%E5%A4%9A%E5%B1%B1%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
