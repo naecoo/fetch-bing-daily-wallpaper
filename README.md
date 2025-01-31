@@ -1,6 +1,6 @@
 
-**一点都不普通**
+**雪与石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_1920x1080.jpg)
-[日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%96%91%E9%A9%AC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_1920x1080.jpg)
+[国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/search?q=%E5%9B%BD%E7%8E%8B%E5%B2%A9%E5%A0%A1%E5%9E%92&amp;form=hpcapt&amp;mkt=zh-cn)
   
