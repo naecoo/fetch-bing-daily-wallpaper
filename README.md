@@ -1,6 +1,6 @@
 
-**云端漫步**
+**对国家遗产的思考**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg)
-[金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock)](https://www.bing.com/search?q=%E5%B2%98%E6%B8%AF%E9%87%91%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1920x1080.jpg)
+[拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/search?q=%E6%80%80%E5%94%90%E4%BC%8A%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
