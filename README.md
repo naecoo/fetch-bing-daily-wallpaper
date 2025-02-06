@@ -1,6 +1,6 @@
 
-**对国家遗产的思考**
+**沉浸在蓝调时分**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1920x1080.jpg)
-[拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/search?q=%E6%80%80%E5%94%90%E4%BC%8A%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg)
+[特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)](https://www.bing.com/search?q=%E6%8C%AA%E5%A8%81%E7%89%B9%E9%9A%86%E8%B5%AB%E5%A7%86&amp;form=hpcapt&amp;mkt=zh-cn)
   
