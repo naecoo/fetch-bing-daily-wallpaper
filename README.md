@@ -1,6 +1,6 @@
 
-**沉浸在蓝调时分**
+**凝固的时光**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg)
-[特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)](https://www.bing.com/search?q=%E6%8C%AA%E5%A8%81%E7%89%B9%E9%9A%86%E8%B5%AB%E5%A7%86&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg)
+[梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)](https://www.bing.com/search?q=%E6%A2%85%E6%96%AF%E8%92%82%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
