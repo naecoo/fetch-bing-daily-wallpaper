@@ -1,6 +1,6 @@
 
-**在伞下**
+**历史的守望之眼**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg)
-[雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)](https://www.bing.com/search?q=%E9%9B%A8%E4%BC%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg)
+[云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E5%90%8C%E4%BA%91%E5%86%88%E7%9F%B3%E7%AA%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
