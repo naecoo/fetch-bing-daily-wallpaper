@@ -1,6 +1,6 @@
 
-**水獭的另一面**
+**高贵的双影**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_1920x1080.jpg)
-[欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E6%B0%B4%E7%8D%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_1920x1080.jpg)
+[马鹿，加拿大 (© Delbars/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E9%B9%BF&amp;form=hpcapt&amp;mkt=zh-cn)
   
