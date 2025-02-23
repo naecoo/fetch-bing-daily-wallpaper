@@ -1,6 +1,6 @@
 
-**清晨的美好精致**
+**墨迹与伪装**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg)
-[日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images)](https://www.bing.com/search?q=%E5%AF%8C%E5%A3%AB%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg)
+[斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)](https://www.bing.com/search?q=%E4%BC%9E%E8%86%9C%E4%B9%8C%E8%B4%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
