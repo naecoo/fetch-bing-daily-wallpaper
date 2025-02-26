@@ -1,6 +1,6 @@
 
-**苏格兰战略的最佳体现**
+**极地关怀**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_1920x1080.jpg)
-[莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E6%96%AF%E6%89%98%E5%85%8B%E5%B0%94%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1920x1080.jpg)
+[北极熊幼崽，丘吉尔，马尼托巴省，加拿大 (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E5%8C%97%E6%9E%81%E7%86%8A%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
