@@ -1,6 +1,6 @@
 
-**“朋友们，罗马人，同胞们…”**
+**回归黑白世界**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1920x1080.jpg)
-[罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/search?q=%E7%BD%97%E9%A9%AC%E8%90%A8%E5%9B%BE%E5%B0%94%E8%AF%BA%E5%86%9C%E7%A5%9E%E5%BA%99&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1920x1080.jpg)
+[雪地里的大熊猫宝宝，中国 (© Cheryl Schneider/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%A4%A7%E7%86%8A%E7%8C%AB&amp;form=hpcapt&amp;mkt=zh-cn)
   
