@@ -1,6 +1,6 @@
 
-**圣帕特里克节的魅力**
+**漩涡般的心境**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1920x1080.jpg)
-[塞缪尔·贝克特桥, 都柏林, 爱尔兰 (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/search?q=%E5%A1%9E%E7%BC%AA%E5%B0%94%C2%B7%E8%B4%9D%E5%85%8B%E7%89%B9%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1920x1080.jpg)
+[红色岩层，塞多纳，亚利桑那州，美国 (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/search?q=%E4%BA%9A%E5%88%A9%E6%A1%91%E9%82%A3%E5%B7%9E%E5%A1%9E%E5%A4%9A%E7%BA%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
