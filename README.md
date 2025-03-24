@@ -1,6 +1,6 @@
 
-**高草盛宴**
+**色彩斑斓的访客**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1920x1080.jpg)
-[沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)](https://www.bing.com/search?q=%E6%B2%99%E6%BC%A0%E8%B1%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1920x1080.jpg)
+[向日葵田里的红额金翅雀，德国 (© Juniors Bildarchiv GmbH/Alamy)](https://www.bing.com/search?q=%E7%BA%A2%E9%A2%9D%E9%87%91%E7%BF%85%E9%9B%80&amp;form=hpcapt&amp;mkt=zh-cn)
   
