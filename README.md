@@ -1,6 +1,6 @@
 
-**朝圣圣胡安·德·加兹特鲁加特**
+**伦敦最尖锐的地标**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg)
-[日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)](https://www.bing.com/search?q=%E5%8A%A0%E5%85%B9%E7%89%B9%E9%B2%81%E5%8A%A0%E7%89%B9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg)
+[碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)](https://www.bing.com/search?q=%E7%A2%8E%E7%89%87%E5%A4%A7%E5%8E%A6&amp;form=hpcapt&amp;mkt=zh-cn)
   
