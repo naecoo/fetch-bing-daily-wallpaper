@@ -1,6 +1,6 @@
 
-**梦幻城堡！**
+**时光通道**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1920x1080.jpg)
-[卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)](https://www.bing.com/search?q=%E6%A0%BC%E6%8B%89%E7%BA%B3%E8%BE%BE&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1920x1080.jpg)
+[卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%A1%A5%E5%9B%BD%E5%AE%B6%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
