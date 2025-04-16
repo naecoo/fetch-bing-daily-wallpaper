@@ -1,6 +1,6 @@
 
-**时光通道**
+**双重戏剧**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_1920x1080.jpg)
-[卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%A1%A5%E5%9B%BD%E5%AE%B6%E5%8C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg)
+[安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%AE%89%E7%AC%AC%E6%96%AF%E5%8A%A8%E5%86%A0%E4%BC%9E%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
