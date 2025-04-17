@@ -1,6 +1,6 @@
 
-**双重戏剧**
+**纪念历史**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg)
-[安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%AE%89%E7%AC%AC%E6%96%AF%E5%8A%A8%E5%86%A0%E4%BC%9E%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg)
+[卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E5%8F%A4%E8%BF%B9%E9%81%97%E5%9D%80%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
