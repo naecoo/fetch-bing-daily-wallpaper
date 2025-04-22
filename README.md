@@ -1,6 +1,6 @@
 
-**我们的能源，我们的星球**
+**波罗的海的魔力**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg)
-[大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%9C%B0%E7%90%83%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg)
+[海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国 (© Frank Lukasseck/eStock Photo)](https://www.bing.com/search?q=%E6%B5%B7%E5%88%A9%E6%A0%B9%E6%B8%AF%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
