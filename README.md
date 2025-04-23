@@ -1,6 +1,6 @@
 
-**波罗的海的魔力**
+**崎岖山峰与野性水域**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg)
-[海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国 (© Frank Lukasseck/eStock Photo)](https://www.bing.com/search?q=%E6%B5%B7%E5%88%A9%E6%A0%B9%E6%B8%AF%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_1920x1080.jpg)
+[阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国 (© Wander Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E5%9F%BA%E5%A5%88%E5%B3%A1%E6%B9%BE%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
