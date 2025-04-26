@@ -1,6 +1,6 @@
 
-**悬崖、洞穴与清澈的水域**
+**就在这里驻足吧**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg)
-[印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/search?q=%E5%B8%83%E9%B2%81%E6%96%AF%E5%8D%8A%E5%B2%9B%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg)
+[红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)](https://www.bing.com/search?q=%E7%BA%A2%E6%9C%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E5%92%8C%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
