@@ -1,6 +1,6 @@
 
-**就在这里驻足吧**
+**这只黑斑羚正在何处漫游？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg)
-[红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)](https://www.bing.com/search?q=%E7%BA%A2%E6%9C%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E5%92%8C%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg)
+[莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)](https://www.bing.com/search?q=%E9%AB%98%E8%A7%92%E7%BE%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
