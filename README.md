@@ -1,6 +1,6 @@
 
-**瀑布声在各国间回响**
+**芬芳的传统**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1920x1080.jpg)
-[从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)](https://www.bing.com/search?q=%E4%BC%8A%E7%93%9C%E8%8B%8F%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1920x1080.jpg)
+[鸡蛋花，夏威夷，美国 (© Miranda Jans/Getty Images)](https://www.bing.com/search?q=%E9%B8%A1%E8%9B%8B%E8%8A%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
