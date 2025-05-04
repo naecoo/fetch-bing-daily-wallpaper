@@ -1,6 +1,6 @@
 
-**欢迎来到纳布星球！**
+**秀美壮丽的山河**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg)
-[西班牙广场，塞维利亚，西班牙 (© Horia Merla/Getty Images)](https://www.bing.com/search?q=%E6%98%9F%E7%90%83%E5%A4%A7%E6%88%98%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg)
+[日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)](https://www.bing.com/search?q=%E6%A1%82%E6%9E%97%E5%96%80%E6%96%AF%E7%89%B9%E5%B1%B1%E8%84%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
