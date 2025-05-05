@@ -1,6 +1,6 @@
 
-**秀美壮丽的山河**
+**不一般的沙漠之旅**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg)
-[日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)](https://www.bing.com/search?q=%E6%A1%82%E6%9E%97%E5%96%80%E6%96%AF%E7%89%B9%E5%B1%B1%E8%84%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg)
+[一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/search?q=%E8%B6%85%E8%BD%BB%E5%9E%8B%E9%A3%9E%E6%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
   
