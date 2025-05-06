@@ -1,6 +1,6 @@
 
-**不一般的沙漠之旅**
+**岩石上的城堡**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg)
-[一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/search?q=%E8%B6%85%E8%BD%BB%E5%9E%8B%E9%A3%9E%E6%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg)
+[邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://www.bing.com/search?q=%E9%82%93%E8%B7%AF%E6%96%AF%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
