@@ -1,6 +1,6 @@
 
-**岩石上的城堡**
+**值得大声欢呼的一天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg)
-[邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)](https://www.bing.com/search?q=%E9%82%93%E8%B7%AF%E6%96%AF%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_1920x1080.jpg)
+[Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty Images)](https://www.bing.com/search?q=%E9%A9%B4%E5%AD%90&amp;form=hpcapt&amp;mkt=zh-cn)
   
