@@ -1,6 +1,6 @@
 
-**紫色的波浪**
+**66岁，依然美丽动人**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1920x1080.jpg)
-[东京的鸢尾花园, 日本 (© M.Arai/Getty Images)](https://www.bing.com/search?q=%E9%B8%A2%E5%B0%BE%E5%B1%9E%E6%A4%8D%E7%89%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1920x1080.jpg)
+[百内国家公园, 巴塔哥尼亚, 智利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/search?q=%E7%99%BE%E5%86%85%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
