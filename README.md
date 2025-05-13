@@ -1,6 +1,6 @@
 
-**66岁，依然美丽动人**
+**矿石与传奇**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_1920x1080.jpg)
-[百内国家公园, 巴塔哥尼亚, 智利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/search?q=%E7%99%BE%E5%86%85%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg)
+[弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/search?q=%E5%BC%97%E6%8B%89%E7%BB%B4%E4%BA%9A%E6%B8%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
