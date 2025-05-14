@@ -1,6 +1,6 @@
 
-**矿石与传奇**
+**伦敦时间到！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg)
-[弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利 (© Marco Bottigelli/Getty Images)](https://www.bing.com/search?q=%E5%BC%97%E6%8B%89%E7%BB%B4%E4%BA%9A%E6%B8%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg)
+[大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国 (© Puthipong Worasaran/Getty Images)](https://www.bing.com/search?q=%E4%BC%A6%E6%95%A6%E5%A4%A7%E6%9C%AC%E9%92%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
