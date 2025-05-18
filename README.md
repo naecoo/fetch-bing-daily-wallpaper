@@ -1,6 +1,6 @@
 
-**图卢兹的暮色**
+**汉密尔顿山的蜿蜒之路**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg)
-[加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)](https://www.bing.com/search?q=%E5%9B%BE%E5%8D%A2%E5%85%B9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg)
+[汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E6%B1%89%E5%AF%86%E5%B0%94%E9%A1%BF%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
