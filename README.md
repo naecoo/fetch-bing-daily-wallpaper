@@ -1,6 +1,6 @@
 
-**茶歇时光**
+**猴面包树大道**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg)
-[杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%8C%B6%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg)
+[日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E7%94%9F%E7%89%A9%E5%A4%9A%E6%A0%B7%E6%80%A7%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
