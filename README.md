@@ -1,6 +1,6 @@
 
-**为龟喝彩！**
+**欧洲的野性之美**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1920x1080.jpg)
-[停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B5%B7%E9%BE%9F%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg)
+[挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)](https://www.bing.com/search?q=%E6%AC%A7%E6%B4%B2%E5%85%AC%E5%9B%AD%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
