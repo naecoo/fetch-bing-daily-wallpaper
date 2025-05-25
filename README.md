@@ -1,6 +1,6 @@
 
-**绽放于你所在之地**
+**山间奔驰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg)
-[布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)](https://www.bing.com/search?q=%E5%B8%83%E6%9F%A5%E7%89%B9%E8%8A%B1%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg)
+[沿着岚山保津川行驶的火车，京都，日本 (© Alvin Huang/Getty Images)](https://www.bing.com/search?q=%E5%B2%9A%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
