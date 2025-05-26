@@ -1,6 +1,6 @@
 
-**山间奔驰**
+**一处海滨奇观**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg)
-[沿着岚山保津川行驶的火车，京都，日本 (© Alvin Huang/Getty Images)](https://www.bing.com/search?q=%E5%B2%9A%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1920x1080.jpg)
+[梦娜维尔岩池，悉尼，澳大利亚 (© jamenpercy/Getty Images)](https://www.bing.com/search?q=%E8%8E%AB%E7%BA%B3%E7%BB%B4%E5%B0%94%E5%B2%A9%E6%B1%A0&amp;form=hpcapt&amp;mkt=zh-cn)
   
