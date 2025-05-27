@@ -1,6 +1,6 @@
 
-**一处海滨奇观**
+**海獭很重要**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1920x1080.jpg)
-[梦娜维尔岩池，悉尼，澳大利亚 (© jamenpercy/Getty Images)](https://www.bing.com/search?q=%E8%8E%AB%E7%BA%B3%E7%BB%B4%E5%B0%94%E5%B2%A9%E6%B1%A0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1920x1080.jpg)
+[一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
