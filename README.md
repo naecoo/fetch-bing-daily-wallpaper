@@ -1,6 +1,6 @@
 
-**海底世界**
+**花的力量**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg)
-[格朗特尔岛附近的堡礁，法属新喀里多尼亚 (© Karsten Wrobel/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%8F%8A%E7%91%9A%E7%A4%81%E4%BF%9D%E6%8A%A4%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg)
+[一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)](https://www.bing.com/search?q=%E7%B4%AB%E9%94%A5%E8%8F%8A&amp;form=hpcapt&amp;mkt=zh-cn)
   
