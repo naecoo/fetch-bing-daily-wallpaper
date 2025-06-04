@@ -1,6 +1,6 @@
 
-**卡拉卢纳海滩, 撒丁岛, 意大利**
+**隐藏的美景**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg)
-[卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)](https://www.bing.com/search?q=%E6%92%92%E4%B8%81%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg)
+[福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)](https://www.bing.com/search?q=%E8%BF%AA%E4%BA%9A%E6%9B%BC%E8%92%82%E7%BA%B3%E9%AB%98%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
