@@ -1,6 +1,6 @@
 
-**走上高远之路**
+**来自彼岸的问候**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_1920x1080.jpg)
-[松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国 (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%9B%BD%E5%AE%B6%E6%AD%A5%E9%81%93%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.StellarSeaLions_ZH-CN2859514359_1920x1080.jpg)
+[北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B5%B7%E6%B4%8B%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
