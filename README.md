@@ -1,6 +1,6 @@
 
-**潮汐间的芭蕾**
+**星空、岩石与孤寂**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg)
-[大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%A4%A7%E7%BA%A2%E9%B9%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg)
+[奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E5%BC%AF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
