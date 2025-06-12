@@ -1,6 +1,6 @@
 
-**星空、岩石与孤寂**
+**海洋的隐秘心跳**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg)
-[奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E5%BC%AF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg)
+[维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)](https://www.bing.com/search?q=%E7%BB%B4%E6%8B%89%E5%BC%97%E5%85%B0%E5%8D%A1%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
