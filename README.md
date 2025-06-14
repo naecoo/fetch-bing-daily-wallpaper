@@ -1,6 +1,6 @@
 
-**静谧之声**
+**羽翼下的父爱**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg)
-[五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)](https://www.bing.com/search?q=%E5%A4%9A%E6%B4%9B%E7%B1%B3%E8%92%82%E5%B1%B1%E8%84%89%E4%BA%94%E5%A1%94%E5%B3%B0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1920x1080.jpg)
+[雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/search?q=%E7%88%B6%E4%BA%B2%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
