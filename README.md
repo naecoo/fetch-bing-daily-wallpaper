@@ -1,6 +1,6 @@
 
-**远古泳者的现代困境**
+**海岸静谧，野性依旧**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1920x1080.jpg)
-[海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)](https://www.bing.com/search?q=%E6%B5%B7%E9%BE%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1920x1080.jpg)
+[坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%9D%8E%E4%BC%AF%E5%85%B0%E5%B2%9B%E5%9B%BD%E5%AE%B6%E6%B5%B7%E5%B2%B8&amp;form=hpcapt&amp;mkt=zh-cn)
   
