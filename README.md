@@ -1,6 +1,6 @@
 
-**一路丛林**
+**从废墟中重生**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg)
-[亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)](https://www.bing.com/search?q=%E5%8E%84%E7%93%9C%E5%A4%9A%E5%B0%94%E7%9A%84%E4%BA%9A%E9%A9%AC%E9%80%8A%E9%9B%A8%E6%9E%97&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg)
+[德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)](https://www.bing.com/search?q=%E5%BE%B7%E7%B4%AF%E6%96%AF%E9%A1%BF&amp;form=hpcapt&amp;mkt=zh-cn)
   
