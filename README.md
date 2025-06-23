@@ -1,6 +1,6 @@
 
-**从废墟中重生**
+**大自然的耐心之作**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg)
-[德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)](https://www.bing.com/search?q=%E5%BE%B7%E7%B4%AF%E6%96%AF%E9%A1%BF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg)
+[精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)](https://www.bing.com/search?q=%E7%8A%B9%E4%BB%96%E5%B7%9E%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E7%B2%BE%E8%87%B4%E6%8B%B1%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
   
