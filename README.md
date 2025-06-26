@@ -1,6 +1,6 @@
 
-**海岸线附近的“马戏”**
+**古冰川遗迹之地**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg)
-[马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)](https://www.bing.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E9%A9%AC%E5%A4%B4%E5%B2%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg)
+[Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/search?q=%E6%B5%B7%E5%8B%92%E7%A6%8F%E4%BB%80%E5%B8%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
