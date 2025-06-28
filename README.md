@@ -1,6 +1,6 @@
 
-**从实用建筑到地标象征**
+**哪里让历史变得“辛辣”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_1920x1080.jpg)
-[曼海姆水塔, 德国 (© no limit pictures/Getty Images)](https://www.bing.com/search?q=%E6%9B%BC%E6%B5%B7%E5%A7%86%E6%B0%B4%E5%A1%94&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg)
+[Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/search?q=%E7%8F%AD%E8%BE%BE%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
