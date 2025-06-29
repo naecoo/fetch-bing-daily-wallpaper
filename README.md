@@ -1,6 +1,6 @@
 
-**哪里让历史变得“辛辣”**
+**是谁击中了地面？**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_1920x1080.jpg)
-[Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/search?q=%E7%8F%AD%E8%BE%BE%E7%BE%A4%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg)
+[沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/search?q=%E5%B0%8F%E8%A1%8C%E6%98%9F%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
