@@ -1,6 +1,6 @@
 
-**是谁击中了地面？**
+**原始渔村的风貌**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_1920x1080.jpg)
-[沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/search?q=%E5%B0%8F%E8%A1%8C%E6%98%9F%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_1920x1080.jpg)
+[Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大 (© FedevPhoto/Getty Images)](https://www.bing.com/search?q=%E5%8A%A0%E6%8B%BF%E5%A4%A7%E7%BA%BD%E8%8A%AC%E5%85%B0%E5%B2%9B%E7%A6%8F%E6%88%88%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
