@@ -1,6 +1,6 @@
 
-**彩虹河的清澈拥抱**
+**水、空气、岩石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg)
-[彩虹泉州立公园的彩虹河，佛罗里达州，美国 (© Michel Roggo/Minden Pictures)](https://www.bing.com/search?q=%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E%E5%BD%A9%E8%99%B9%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg)
+[奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/search?q=%E6%92%92%E4%B8%81%E5%B2%9B%E5%A5%A5%E7%BD%97%E5%A1%9E&amp;form=hpcapt&amp;mkt=zh-cn)
   
