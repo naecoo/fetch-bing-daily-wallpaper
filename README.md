@@ -1,6 +1,6 @@
 
-**水、空气、岩石**
+**优雅而低调的巨人**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg)
-[奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/search?q=%E6%92%92%E4%B8%81%E5%B2%9B%E5%A5%A5%E7%BD%97%E5%A1%9E&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg)
+[Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E9%94%A1%E5%85%B9%E5%8D%9A%E6%B4%9B%E5%AE%97%E9%AB%98%E6%9E%B6%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
