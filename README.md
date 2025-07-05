@@ -1,6 +1,6 @@
 
-**优雅而低调的巨人**
+**时光沙丘**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg)
-[Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E9%94%A1%E5%85%B9%E5%8D%9A%E6%B4%9B%E5%AE%97%E9%AB%98%E6%9E%B6%E6%A1%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg)
+[死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E6%AD%BB%E4%BA%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
