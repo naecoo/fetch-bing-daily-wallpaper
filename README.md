@@ -1,6 +1,6 @@
 
-**时光沙丘**
+**闪电俯冲、水花四溅，然后开吃**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg)
-[死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E6%AD%BB%E4%BA%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg)
+[潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/search?q=%E5%8C%97%E6%96%B9%E9%B2%A3%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
