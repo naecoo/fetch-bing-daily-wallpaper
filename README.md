@@ -1,6 +1,6 @@
 
-**闪电俯冲、水花四溅，然后开吃**
+**锋芒毕露的美**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg)
-[潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/search?q=%E5%8C%97%E6%96%B9%E9%B2%A3%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg)
+[塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)](https://www.bing.com/search?q=%E5%A4%9A%E6%B4%9B%E7%B1%B3%E8%92%82%E5%B1%B1%E8%84%89&amp;form=hpcapt&amp;mkt=zh-cn)
   
