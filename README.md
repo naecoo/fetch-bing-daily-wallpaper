@@ -1,6 +1,6 @@
 
-**锋芒毕露的美**
+**具有纪念意义的火车站**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg)
-[塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)](https://www.bing.com/search?q=%E5%A4%9A%E6%B4%9B%E7%B1%B3%E8%92%82%E5%B1%B1%E8%84%89&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg)
+[宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)](https://www.bing.com/search?q=%E5%B8%83%E5%AE%9C%E8%AF%BA%E6%96%AF%E8%89%BE%E5%88%A9%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
