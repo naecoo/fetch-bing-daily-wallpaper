@@ -1,6 +1,6 @@
 
-**具有纪念意义的火车站**
+**奔向自由之浪**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg)
-[宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)](https://www.bing.com/search?q=%E5%B8%83%E5%AE%9C%E8%AF%BA%E6%96%AF%E8%89%BE%E5%88%A9%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg)
+[巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/search?q=%E5%B7%B4%E5%93%88%E9%A9%AC&amp;form=hpcapt&amp;mkt=zh-cn)
   
