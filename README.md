@@ -1,6 +1,6 @@
 
-**跟随妈妈的脚步**
+**层层叠叠的岩石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg)
-[汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/search?q=%E6%B1%A4%E6%B0%8F%E7%9E%AA%E7%BE%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg)
+[卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/search?q=%E5%B2%A9%E7%9F%B3%E5%9C%B0%E8%B4%A8%E5%AD%A6&amp;form=hpcapt&amp;mkt=zh-cn)
   
