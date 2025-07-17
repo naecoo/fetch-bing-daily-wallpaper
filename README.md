@@ -1,6 +1,6 @@
 
-**追随香气的地平线**
+**一切准备就绪，等待日落**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg)
-[瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)](https://www.bing.com/search?q=%E7%93%A6%E6%9C%97%E7%B4%A2%E5%8B%92%E9%AB%98%E5%8E%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1920x1080.jpg)
+[塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/search?q=%E5%A1%9E%E9%87%8C%E9%9B%85%E5%85%B0%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
   
