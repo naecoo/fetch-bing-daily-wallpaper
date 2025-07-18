@@ -1,6 +1,6 @@
 
-**一切准备就绪，等待日落**
+**化石、瀑布与林间小径**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_1920x1080.jpg)
-[塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/search?q=%E5%A1%9E%E9%87%8C%E9%9B%85%E5%85%B0%E7%80%91%E5%B8%83&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1920x1080.jpg)
+[幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)](https://www.bing.com/search?q=%E5%B9%BD%E9%B9%A4%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
