@@ -1,6 +1,6 @@
 
-**海洋中的热带雨林**
+**天山上的蓝宝石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg)
-[浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)](https://www.bing.com/search?q=%E7%8F%8A%E7%91%9A%E7%A4%81%E5%AE%A3%E4%BC%A0%E5%91%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg)
+[夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E8%B5%9B%E9%87%8C%E6%9C%A8%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
   
