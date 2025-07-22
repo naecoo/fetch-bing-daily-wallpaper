@@ -1,6 +1,6 @@
 
-**天山上的蓝宝石**
+**城中之国**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg)
-[夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)](https://www.bing.com/search?q=%E6%96%B0%E7%96%86%E8%B5%9B%E9%87%8C%E6%9C%A8%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_1920x1080.jpg)
+[梵蒂冈城与圣彼得大教堂，罗马，意大利 (© RudyBalasko/Getty Images)](https://www.bing.com/search?q=%E6%A2%B5%E8%92%82%E5%86%88%E5%9F%8E&amp;form=hpcapt&amp;mkt=zh-cn)
   
