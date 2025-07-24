@@ -1,6 +1,6 @@
 
-**物以类聚，鸟以群分**
+**生活的画卷**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1920x1080.jpg)
-[栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)](https://www.bing.com/search?q=%E7%81%B0%E7%87%95%E9%B5%99&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg)
+[大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E5%8A%A0%E9%82%A3%E5%88%A9%E5%B2%9B%E6%8B%89%E6%96%AF%E5%B8%95%E5%B0%94%E9%A9%AC%E6%96%AF&amp;form=hpcapt&amp;mkt=zh-cn)
   
