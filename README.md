@@ -1,6 +1,6 @@
 
-**理想的世界！**
+**远离尘嚣**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1920x1080.jpg)
-[里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)](https://www.bing.com/search?q=%E9%87%8C%E7%93%A6%E5%BE%B7%E5%A1%9E%E5%88%A9%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg)
+[纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/search?q=%E2%80%8C%E5%8D%A1%E6%8B%89%E5%8A%B3%E6%B5%B7%E6%BB%A9&amp;form=hpcapt&amp;mkt=zh-cn)
   
