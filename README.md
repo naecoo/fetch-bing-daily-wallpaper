@@ -1,6 +1,6 @@
 
-**野性、智慧与奇迹**
+**地球的公开秘密**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_1920x1080.jpg)
-[非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg)
+[一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%8B%B1%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
   
