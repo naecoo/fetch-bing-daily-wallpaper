@@ -1,6 +1,6 @@
 
-**地球的公开秘密**
+**从山顶俯瞰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg)
-[一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%8B%B1%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1920x1080.jpg)
+[皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)](https://www.bing.com/search?q=%E5%A5%88%E5%B0%94%E5%B3%B0&amp;form=hpcapt&amp;mkt=zh-cn)
   
