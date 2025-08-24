@@ -1,6 +1,6 @@
 
-**“跟我来”**
+**从火山之源到河流之路**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg)
-[欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/search?q=%E6%AC%A7%E6%B4%B2%E9%BB%87%E9%B9%BF%E2%80%8C&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg)
+[方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
   
