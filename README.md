@@ -1,6 +1,6 @@
 
-**从火山之源到河流之路**
+**一座非凡的特鲁洛小镇**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg)
-[方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E6%B2%B3&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg)
+[阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E8%B4%9D%E7%BD%97%E8%B4%9D%E6%B4%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
