@@ -1,6 +1,6 @@
 
-**完美的夜晚**
+**忙碌的一天**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg)
-[太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/search?q=%E5%9C%A3%E8%8E%AB%E5%A6%AE%E5%8D%A1%E5%B7%9E%E7%AB%8B%E6%B5%B7%E6%BB%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg)
+[棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)](https://www.bing.com/search?q=%E6%A3%95%E7%85%8C%E8%9C%82%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
