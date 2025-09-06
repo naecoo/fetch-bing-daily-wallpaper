@@ -1,6 +1,6 @@
 
-**忙碌的一天**
+**淡彩的梦境和静水**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg)
-[棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)](https://www.bing.com/search?q=%E6%A3%95%E7%85%8C%E8%9C%82%E9%B8%9F&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1920x1080.jpg)
+[位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E6%B3%A2%E5%85%B0%E6%A0%BC%E4%BD%86%E6%96%AF%E5%85%8B%E5%B8%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
