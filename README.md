@@ -1,6 +1,6 @@
 
-**忠勇的雕刻石**
+**速度与毛茸茸**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg)
-[奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)](https://www.bing.com/search?q=%E5%A5%87%E9%99%B6%E5%B0%94%E5%8A%A0%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1920x1080.jpg)
+[最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/search?q=%E6%9C%80%E5%B0%8F%E8%8A%B1%E6%A0%97%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
   
