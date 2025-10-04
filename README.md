@@ -1,6 +1,6 @@
 
-**使命必达**
+**庆祝智慧！**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg)
-[从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%A9%BA%E9%97%B4%E5%91%A8&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg)
+[中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%95%99%E5%B8%88%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
