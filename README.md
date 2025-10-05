@@ -1,6 +1,6 @@
 
-**庆祝智慧！**
+**千里共婵娟**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg)
-[中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%95%99%E5%B8%88%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1920x1080.jpg)
+[安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/search?q=%E4%B8%AD%E7%A7%8B%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
