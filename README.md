@@ -1,6 +1,6 @@
 
-**水声低语**
+**蓝与白的梦境**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg)
-[温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/search?q=%E6%B8%A9%E5%B7%B4%E8%B5%AB%E5%B3%A1%E8%B0%B7&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg)
+[伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)](https://www.bing.com/search?q=%E5%B8%8C%E8%85%8A%E4%BC%8A%E4%BA%9A%E9%95%87&amp;form=hpcapt&amp;mkt=zh-cn)
   
