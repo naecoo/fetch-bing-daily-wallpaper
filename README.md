@@ -1,6 +1,6 @@
 
-**千年秘境**
+**通往石之奇境的大门**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg)
-[被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)](https://www.bing.com/search?q=%E8%83%A1%E6%9D%A8%E6%A0%91&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg)
+[安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)](https://www.bing.com/search?q=%E5%93%A5%E7%89%B9%E5%BC%8F%E6%8B%B1%E9%97%A8&amp;form=hpcapt&amp;mkt=zh-cn)
   
