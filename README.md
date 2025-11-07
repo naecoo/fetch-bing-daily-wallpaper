@@ -1,6 +1,6 @@
 
-**魅力十足的巨型动物**
+**班登的明星岩石**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg)
-[丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg)
+[班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9E%E7%8F%AD%E7%99%BB&amp;form=hpcapt&amp;mkt=zh-cn)
   
