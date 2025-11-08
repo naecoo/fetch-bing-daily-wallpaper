@@ -1,6 +1,6 @@
 
-**班登的明星岩石**
+**从前有一颗星星**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg)
-[班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9E%E7%8F%AD%E7%99%BB&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg)
+[礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)](https://www.bing.com/search?q=%E7%A4%81%E6%B9%96%E6%98%9F%E4%BA%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
