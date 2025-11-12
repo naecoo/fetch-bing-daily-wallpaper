@@ -1,6 +1,6 @@
 
-**条条大路通罗马**
+**星光下的颤动之树**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_1920x1080.jpg)
-[斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/search?q=%E7%BD%97%E9%A9%AC%E6%96%97%E5%85%BD%E5%9C%BA&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg)
+[夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)](https://www.bing.com/search?q=%E7%AE%AD%E8%A2%8B%E6%A0%91&amp;form=hpcapt&amp;mkt=zh-cn)
   
