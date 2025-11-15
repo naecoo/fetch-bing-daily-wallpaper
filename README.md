@@ -1,6 +1,6 @@
 
-**像日光那样“弯道飞驰”**
+**承载过往的篇章**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_1920x1080.jpg)
-[秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)](https://www.bing.com/search?q=%E6%A0%83%E6%9C%A8%E5%8E%BF%E6%97%A5%E5%85%89%E5%B8%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg)
+[里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国](https://www.bing.com/search?q=%E9%87%8C%E6%98%82%E7%9A%84%E7%A9%BF%E5%BB%8A&amp;form=hpcapt&amp;mkt=zh-cn)
   
