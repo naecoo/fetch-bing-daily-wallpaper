@@ -1,6 +1,6 @@
 
-**大自然的秘密代码**
+**岩石中的秘密**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg)
-[马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)](https://www.bing.com/search?q=%E6%96%90%E6%B3%A2%E9%82%A3%E5%A5%91%E6%95%B0%E5%88%97&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg)
+[瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)](https://www.bing.com/search?q=%E7%93%9C%E5%BB%96%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6%E4%B8%AD%E5%A4%AE%E9%82%A6&amp;form=hpcapt&amp;mkt=zh-cn)
   
