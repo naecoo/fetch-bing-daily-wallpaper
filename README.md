@@ -1,6 +1,6 @@
 
-**潮起潮落的坚守**
+**白色回响**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1920x1080.jpg)
-[伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/search?q=%E4%BC%8A%E6%96%AF%E7%89%B9%E6%9C%AC%E7%A0%81%E5%A4%B4&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1920x1080.jpg)
+[瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%B8%83%E9%9B%B7%E8%A5%BF%E4%BA%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
