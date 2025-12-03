@@ -1,6 +1,6 @@
 
-**曙光中的鹤影**
+**为生存而疾驰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_1920x1080.jpg)
-[日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)](https://www.bing.com/search?q=%E6%B2%99%E4%B8%98%E9%B9%A4&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg)
+[马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)](https://www.bing.com/search?q=%E7%8C%8E%E8%B1%B9&amp;form=hpcapt&amp;mkt=zh-cn)
   
