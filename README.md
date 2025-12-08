@@ -1,6 +1,6 @@
 
-**一切安详，一切明亮**
+**说“茄子”……或者“青草”**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg)
-[多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/search?q=%E7%A7%91%E8%8E%AB%E6%B9%96&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_1920x1080.jpg)
+[原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)](https://www.bing.com/search?q=%E5%8E%9F%E9%A9%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
