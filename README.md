@@ -1,6 +1,6 @@
 
-**文化交汇之地**
+**天地相接之处**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_1920x1080.jpg)
-[科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)](https://www.bing.com/search?q=%E7%A7%91%E5%B0%94%E5%A4%9A%E7%93%A6%E6%B8%85%E7%9C%9F%E5%AF%BA%E5%A4%A7%E6%95%99%E5%A0%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_1920x1080.jpg)
+[从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)](https://www.bing.com/search?q=%E7%8F%A0%E7%A9%86%E6%9C%97%E7%8E%9B%E5%B3%B0&amp;form=hpcapt&amp;mkt=zh-cn)
   
