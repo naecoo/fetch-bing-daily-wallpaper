@@ -1,6 +1,6 @@
 
-**皮毛、霜冻和盛宴**
+**犹他州的时光层叠**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1920x1080.jpg)
-[在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg)
+[太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
