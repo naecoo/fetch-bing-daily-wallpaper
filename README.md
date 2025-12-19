@@ -1,6 +1,6 @@
 
-**高山的悠久历史**
+**闪烁的纸星星**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg)
-[博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%8D%9A%E5%B0%94%E7%B1%B3%E5%A5%A5&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1920x1080.jpg)
+[圣诞星形灯笼，德国 (© artas/Getty Images)](https://www.bing.com/search?q=%E6%91%A9%E6%8B%89%E7%BB%B4%E4%BA%9A%E4%B9%8B%E6%98%9F&amp;form=hpcapt&amp;mkt=zh-cn)
   
