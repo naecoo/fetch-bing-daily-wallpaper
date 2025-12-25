@@ -1,6 +1,6 @@
 
-**微缩世界，无尽奇想**
+**打破盒子的传统**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg)
-[海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)](https://www.bing.com/search?q=%E5%9C%A3%E8%AF%9E%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg)
+[索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/search?q=%E8%8A%82%E7%A4%BC%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
