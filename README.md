@@ -1,6 +1,6 @@
 
-**一座比城市更悠久的教堂**
+**新太阳的诞生**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg)
-[阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E9%98%BF%E5%B0%BC%E9%81%97%E5%9D%80&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg)
+[晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)](https://www.bing.com/search?q=%E5%8C%97%E5%8D%8A%E7%90%83%E7%9A%84%E5%86%AC%E5%AD%A3&amp;form=hpcapt&amp;mkt=zh-cn)
   
