@@ -1,6 +1,6 @@
 
-**努克的慵懒时光**
+**古老岩石的传奇**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg)
-[努克, 格陵兰 (© nevereverro/Getty Images)](https://www.bing.com/search?q=%E5%8A%AA%E5%85%8B%E6%A0%BC%E9%99%B5%E5%85%B0%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg)
+[拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国 (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/search?q=%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
