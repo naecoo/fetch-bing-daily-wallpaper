@@ -1,6 +1,6 @@
 
-**从抗拒到绽放**
+**水獭之国爱沙尼亚**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_1920x1080.jpg)
-[舍夫沙万的蓝色墙壁, 摩洛哥 (© AnetteAndersen/Getty Images)](https://www.bing.com/search?q=%E6%91%A9%E6%B4%9B%E5%93%A5%E8%88%8D%E5%A4%AB%E6%B2%99%E4%B8%87&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1920x1080.jpg)
+[欧亚水獭和幼崽, 爱沙尼亚 (© Sven Zacek/naturepl.com)](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E6%B0%B4%E7%8D%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
