@@ -1,6 +1,6 @@
 
-**苹果韵，旧时光**
+**帕拉米蒂的历史之阶**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg)
-[克卢伊德谷, 威尔士 (© Valerie Blencowe/Getty Images)](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E5%85%8B%E5%8D%A2%E4%BC%8A%E5%BE%B7%E8%B0%B7&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg)
+[帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)](https://www.bing.com/search?q=%E5%B8%95%E6%8B%89%E7%B1%B3%E8%92%82%E5%9F%8E%E5%A0%A1&amp;form=hpcapt&amp;mkt=zh-cn)
   
