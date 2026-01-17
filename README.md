@@ -1,6 +1,6 @@
 
-**普雷比希托广场上的穹顶**
+**伪装成沙漠的奇境**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg)
-[保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)](https://www.bing.com/search?q=%E9%82%A3%E4%B8%8D%E5%8B%92%E6%96%AF%E4%BF%9D%E7%BD%97%E5%9C%A3%E8%8A%B3%E6%B5%8E%E5%9C%A3%E6%AE%BF&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg)
+[白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)](https://www.bing.com/search?q=%E7%99%BD%E6%B2%99%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
