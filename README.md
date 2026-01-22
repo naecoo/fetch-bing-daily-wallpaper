@@ -1,6 +1,6 @@
 
-**波西米亚温泉故事**
+**霜雪中的盛宴**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg)
-[卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)](https://www.bing.com/search?q=%E5%8D%A1%E7%BD%97%E7%BB%B4%E7%93%A6%E5%88%A9&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1920x1080.jpg)
+[绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E4%BB%B2%E5%86%AC%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
