@@ -1,6 +1,6 @@
 
-**密尔沃基的传奇故事**
+**海潮退却之处**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1920x1080.jpg)
-[密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)](https://www.bing.com/search?q=%E5%AF%86%E5%B0%94%E6%B2%83%E5%9F%BA%E5%B8%82&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1920x1080.jpg)
+[马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/search?q=%E5%9C%A3%E8%BF%88%E5%85%8B%E5%B0%94%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
   
