@@ -1,6 +1,6 @@
 
-**困在网格里**
+**拉古塞拉——奥运赛季的巅峰**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1920x1080.jpg)
-[戈佐岛上的盐田, 马耳他 (© Marius Roman/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E6%88%88%E4%BD%90%E5%B2%9B+&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg)
+[贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)](https://www.bing.com/search?q=2026%E5%B9%B4%E5%86%AC%E5%AD%A3%E5%A5%A5%E8%BF%90%E4%BC%9A&amp;form=hpcapt&amp;mkt=zh-cn)
   
