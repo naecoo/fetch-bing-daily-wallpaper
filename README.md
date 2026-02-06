@@ -1,6 +1,6 @@
 
-**拉古塞拉——奥运赛季的巅峰**
+**在盐沼与天空之间，万物静谧**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg)
-[贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)](https://www.bing.com/search?q=2026%E5%B9%B4%E5%86%AC%E5%AD%A3%E5%A5%A5%E8%BF%90%E4%BC%9A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1920x1080.jpg)
+[玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)](https://www.bing.com/search?q=%E7%8E%BB%E5%88%A9%E7%BB%B4%E4%BA%9A%E4%B9%8C%E5%B0%A4%E5%B0%BC%E7%9B%90%E6%B2%BC&amp;form=hpcapt&amp;mkt=zh-cn)
   
