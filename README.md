@@ -1,6 +1,6 @@
 
-**祝除夕团圆，新年顺遂！**
+**福气满满，马年大吉**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg)
-[庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)](https://www.bing.com/search?q=%E9%99%A4%E5%A4%95%E5%A4%9C&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg)
+[中国春节传统汉字“福” (© DuKai摄影师/Getty Images)](https://www.bing.com/search?q=2026%E9%A9%AC%E5%B9%B4%E6%98%A5%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
