@@ -1,6 +1,6 @@
 
-**群山的母亲**
+**雪原之王**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg)
-[马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)](https://www.bing.com/search?q=%E9%A9%AC%E5%A7%86%E6%89%98%E5%B0%94%E5%B1%B1&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1920x1080.jpg)
+[大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)](https://www.bing.com/search?q=%E5%A4%A7%E7%99%BD%E9%B9%AD&amp;form=hpcapt&amp;mkt=zh-cn)
   
