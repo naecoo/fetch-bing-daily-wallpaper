@@ -1,6 +1,6 @@
 
-**薄冰上的生活**
+**洋溢着社区氛围**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1920x1080.jpg)
-[北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1920x1080.jpg)
+[奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)](https://www.bing.com/search?q=%E8%8E%AB%E6%B4%9B%E5%87%AF%E5%B2%9B&amp;form=hpcapt&amp;mkt=zh-cn)
   
