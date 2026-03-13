@@ -1,6 +1,6 @@
 
-**静谧的石之杰作**
+**圆周率的古老启示**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg)
-[邦港圣母教堂拱顶，莱萨布勒多洛讷，法国 (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E8%8E%B1%E8%90%A8%E5%B8%83%E5%8B%92%E5%A4%9A%E6%B4%9B%E8%AE%B7&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg)
+[兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国 (© Helen Hotson/Alamy)](https://www.bing.com/search?q=%E5%9C%86%E5%91%A8%E7%8E%87%E6%97%A5&amp;form=hpcapt&amp;mkt=zh-cn)
   
