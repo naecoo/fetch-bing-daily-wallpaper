@@ -1,6 +1,6 @@
 
-**走进熊猫世界**
+**爱尔兰的精神十字路口**
 
-![bing-wallpaper](https://www.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1920x1080.jpg)
-[正在吃竹子的大熊猫，中国 (© Entwicklungsknecht/Getty Images)](https://www.bing.com/search?q=%E5%A4%A7%E7%86%8A%E7%8C%AB&amp;form=hpcapt&amp;mkt=zh-cn)
+![bing-wallpaper](https://www.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1920x1080.jpg)
+[艾利赫格里安南环形堡，多内加尔，爱尔兰 (© Lukassek/Getty Images)](https://www.bing.com/search?q=%E5%9C%A3%E5%B8%95%E7%89%B9%E9%87%8C%E5%85%8B%E8%8A%82&amp;form=hpcapt&amp;mkt=zh-cn)
   
